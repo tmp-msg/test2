@@ -9,4 +9,5 @@
 ;> nhỏ nào khôn quen bồ cưới là con nó có chỉ hay có nhà cửa sẵn ròi =))<br>
 ;> nhỏ nào ngu thì quen thg ở nhà trọ, ròi đẻ con ra đời con đời cái ở nhà trọ<br>
 ;> ít ra cũng có nhà dưới quê như a chứ<br>
-;> 
+;> những đứa mà thấy ai sung sướng ngon lành hơn nó mà nó hô ngưỡng mộ là những  đứa đạo đức giả, xạo lồn<br>
+;> thật ra thì nó đang ghen tị
