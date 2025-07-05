@@ -12,4 +12,4 @@
 ;> những đứa mà thấy ai sung sướng ngon lành hơn nó mà nó hô ngưỡng mộ là những  đứa đạo đức giả, xạo lồn<br>
 ;> thật ra thì nó đang ghen tị<br>
 ;> mấy ng mà hay để tâm người khác nghĩ gì về nó sống rất khổ<br>
-;> 
+;> mấy ng mà sống suốt ngày chòm hòm coi ngta hơn gì mình là sống rất khổ<br>
