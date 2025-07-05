@@ -15,4 +15,5 @@
 ;> mấy ng mà sống suốt ngày chòm hòm coi ngta hơn gì mình là sống rất khổ<br>
 https://vnexpress.net/toi-ghen-ti-voi-vo-anh-duc-2148037.html<br>
 ;> con mẹ này có chồng đúng khổ<br>
-;> văn này dân miền trung hoặc bắc thôi e
+;> văn này dân miền trung hoặc bắc thôi e<br>
+=)) giống con mẹ dạy ở trường đh của a
