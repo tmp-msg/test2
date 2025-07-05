@@ -18,4 +18,7 @@ https://vnexpress.net/toi-ghen-ti-voi-vo-anh-duc-2148037.html<br>
 ;> văn này dân miền trung hoặc bắc thôi e<br>
 =)) giống con mẹ dạy ở trường đh của a<br>
 ;> chắc nồi nào vung nấy mà e<br>
-;> chứ con gái giờ ko ai phù hợp là nó ế thôi
+;> chứ con gái giờ ko ai phù hợp là nó ế thôi<br>
+;> thấy hong lương giảng viên thấp mà e<br>
+;> làm giảng viên tuần dạy có nhiu buổi đâu, lại đâu có bị áp lực như làm tư nhân, 1 ngày làm chưa đc 8 tiếng nữa<br>
+=)) lương cao chắc cũng ông nội, bà nội ngta ròi
