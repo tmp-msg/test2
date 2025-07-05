@@ -2,4 +2,5 @@
 ;> tài chính tốt thì đẻ 2-3 đứa cũng đc e<br>
 ;> a ko thích nghèo mạc mà nhìu con<br>
 ;> mấy ng mà nghèo thu nhập thấp ở sài gòn á, ở nhà trọ nhìu thế hệ, nhà trọ 1-2 củ ròi mưa ngập lụt thấy khổ ghê hem<br>
-;> chet thì ko có chỗ chôn, gửi vô chùa ngta thắp nhang cho,chứ ở trọ ai cho thờ
+;> chet thì ko có chỗ chôn, gửi vô chùa ngta thắp nhang cho,chứ ở trọ ai cho thờ<br>
+;> mấy ng đó chắc ng xưa nghĩ có việc làm mỗi tháng nhận lương đều đều, có gia đình con cái z là ngon =))<br>
