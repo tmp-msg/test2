@@ -10,4 +10,4 @@
 ;> chắc chắn là đời con đời cháu nó vẫn ở nhà trọ ròi<br>
 ;> e để ý chứ mấy đứa dân miền trung thích học lắm<br>
 ;> nghèo nên phải chăm học<br>
-;> 
+;> làm ở sài gòn 20 năm ko có dư mua đc miếng đất ở quê lun mà nhìu ng ngta vẫn đu làm ở sài gòn hay thật e
