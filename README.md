@@ -22,4 +22,6 @@
 ;> e làm kinh doanh z chứ cái app 1 triệu users đổ lên là nhìu hả e<br>
 ;> a vs con mẹ già đó đâu ưa gì nhau, tại vì con mẹ đó sống trong quá khứ thành ra hay spam làm phiền a<br>
 ;> ghét nhau thì kệ mẹ nhau, a đâu có liên quan gì nó nữa<br>
-;> kiểu bị phiền á e hĩu hem
+;> kiểu bị phiền á e hĩu hem<br>
+;> a đi coi bói đéo ai nói "m nghiệp, hay m ác bh cả, hay m sống để trả nghiệp cả"<br>
+;> nói ngon lành kha khá ko đó
