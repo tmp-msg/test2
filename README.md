@@ -29,4 +29,5 @@
 ;> tại vì a cũng còn trẻ mà cũng chưa phải già làm nuôi thân cũng chả nuôi ai, cha mẹ còn khỏe tự kiếm tiền đc mà<br>
 ;> cũng chả bệnh tật gì, mua 2 liều thuốc 14k uống 1 liều là hết còn 1 liều để dành<br>
 ;> đi coi bói có ai chê a cái gì đâu<br>
-;> hơn 30 tuổi lại coi bói tiếp thôi e =))
+;> hơn 30 tuổi lại coi bói tiếp thôi e =))<br>
+;> a làm chỉ nuôi thân có nuôi ai đâu e
