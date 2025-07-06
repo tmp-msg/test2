@@ -15,4 +15,5 @@
 ;> đéo ai lại coi bói online bao giờ<br>
 ;> dưới a toàn tới tận chỗ thầy bà coi thôi<br>
 ;> nhìu ng chắc có bệnh thích lảm nhảm thôi e, lảm nhảm cũng đâu thay đổi đc gì<br>
-;> ít ra cuộc sống của mình phải tốt lên chứ
+;> ít ra cuộc sống của mình phải tốt lên chứ<br>
+;> a cũng đéo phải người hay hoài niệm, sống trong quá khứ đâu e
