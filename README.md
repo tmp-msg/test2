@@ -4,3 +4,5 @@
 =)) a đi coi bói nhìu ng đéo ai bảo a ở ác, nghiệp quật bh cả<br>
 ;> làm sao mà cuộc sống mình có tiền, cải thiện chất lượng cuộc sống mình có tiền ăn uống, sắm sửa, chơi bời cho sướng cái xác thôi e<br>
 ;> lảm nhảm hơn thua hết thời gian mà có đc con mịa gì đâu vẫn đói rách giải quyết đc gì<br>
+;> mùa dịch giả nghèo lừa đảo chắc cũng 1 mớ giờ ụp hết<br>
+;> mùa dịch ngta ở nhà chứ con mẹ này mua quần áo sộp pe, mua xăng chạy còng còng ngoài lộ
