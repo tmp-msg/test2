@@ -36,4 +36,5 @@
 ;> nó nghĩ cạn, nó cũng đâu sống thay mình đâu, cuộc sống ai nấy sống thôi<br>
 ;> 1 là có tuổi hơn 30, còn 2 là sự nghiệp kha khá có tiền<br>
 ;> a nghĩ đó là lúc thích hợp để có gia đình thôi e<br>
-;> còn có con kinh tế phải tốt tốt xíu
+;> còn có con kinh tế phải tốt tốt xíu<br>
+;> thôi off ngủ ngon e
