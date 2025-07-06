@@ -24,4 +24,6 @@
 ;> ghét nhau thì kệ mẹ nhau, a đâu có liên quan gì nó nữa<br>
 ;> kiểu bị phiền á e hĩu hem<br>
 ;> a đi coi bói đéo ai nói "m nghiệp, hay m ác bh cả, hay m sống để trả nghiệp cả"<br>
-;> nói ngon lành kha khá ko đó
+;> nói ngon lành kha khá ko đó<br>
+;> ny e đéo nghiệp =))<br>
+;> tại vì a cũng còn trẻ mà cũng chưa phải già làm nuôi thân cũng chả nuôi ai, cha mẹ còn khỏe tự kiếm tiền đc mà
