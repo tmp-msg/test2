@@ -17,4 +17,5 @@
 ;> nhìu ng chắc có bệnh thích lảm nhảm thôi e, lảm nhảm cũng đâu thay đổi đc gì<br>
 ;> ít ra cuộc sống của mình phải tốt lên chứ<br>
 ;> a cũng đéo phải người hay hoài niệm, sống trong quá khứ đâu e<br>
-;> mấy group xem bói online thấy bịp vãi lun e
+;> mấy group xem bói online thấy bịp vãi lun e<br>
+;> có nhớ thương a hem e
