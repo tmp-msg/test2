@@ -7,4 +7,4 @@
 ;> mùa dịch giả nghèo lừa đảo chắc cũng 1 mớ giờ ụp hết<br>
 ;> mùa dịch ngta ở nhà chứ con mẹ này mua quần áo sộp pe, mua xăng chạy còng còng ngoài lộ<br>
 ;> tính cách sao là khó thay đổi lắm e<br>
-;> 
+;> sao lướt fb cứ đầu độc mua xe trước ròi mua nhà quài z ta<br>
