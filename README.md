@@ -26,4 +26,6 @@
 ;> a đi coi bói đéo ai nói "m nghiệp, hay m ác bh cả, hay m sống để trả nghiệp cả"<br>
 ;> nói ngon lành kha khá ko đó<br>
 ;> ny e đéo nghiệp =))<br>
-;> tại vì a cũng còn trẻ mà cũng chưa phải già làm nuôi thân cũng chả nuôi ai, cha mẹ còn khỏe tự kiếm tiền đc mà
+;> tại vì a cũng còn trẻ mà cũng chưa phải già làm nuôi thân cũng chả nuôi ai, cha mẹ còn khỏe tự kiếm tiền đc mà<br>
+;> cũng chả bệnh tật gì, mua 2 liều thuốc 14k uống 1 liều là hết còn 1 liều để dành<br>
+;> 
