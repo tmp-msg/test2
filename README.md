@@ -9,3 +9,5 @@
 ;> con mẹ dạy đại học a gần 50 tuổi éo có nhà ở, mưa ngập lụt đúng khổ<br>
 ;> chắc chắn là đời con đời cháu nó vẫn ở nhà trọ ròi<br>
 ;> e để ý chứ mấy đứa dân miền trung thích học lắm<br>
+;> nghèo nên phải chăm học<br>
+;> 
