@@ -34,4 +34,6 @@
 ;> hồi a đi học á, có mấy đứa hô lập gia đình sớm cho ổn định<br>
 ;> tụi nó nói vs nhau quài chứ gì e<br>
 ;> nó nghĩ cạn, nó cũng đâu sống thay mình đâu, cuộc sống ai nấy sống thôi<br>
-;> 
+;> 1 là có tuổi hơn 30, còn 2 là sự nghiệp kha khá có tiền<br>
+;> a nghĩ đó là lúc thích hợp để có gia đình thôi e<br>
+;> còn có con kinh tế phải tốt tốt xíu
