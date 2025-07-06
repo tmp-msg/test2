@@ -28,4 +28,4 @@
 ;> ny e đéo nghiệp =))<br>
 ;> tại vì a cũng còn trẻ mà cũng chưa phải già làm nuôi thân cũng chả nuôi ai, cha mẹ còn khỏe tự kiếm tiền đc mà<br>
 ;> cũng chả bệnh tật gì, mua 2 liều thuốc 14k uống 1 liều là hết còn 1 liều để dành<br>
-;> 
+;> đi coi bói có ai chê a cái gì đâu
