@@ -13,4 +13,6 @@
 =)) bởi coi bói online là sai lầm e<br>
 ;> cũng view, tư tưởng của ai đó viết ròi đăng lên thôi à<br>
 ;> đéo ai lại coi bói online bao giờ<br>
-;> dưới a toàn tới tận chỗ thầy bà coi thôi
+;> dưới a toàn tới tận chỗ thầy bà coi thôi<br>
+;> nhìu ng chắc có bệnh thích lảm nhảm thôi e, lảm nhảm cũng đâu thay đổi đc gì<br>
+;> ít ra cuộc sống của mình phải tốt lên chứ
