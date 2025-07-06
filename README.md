@@ -18,4 +18,5 @@
 ;> ít ra cuộc sống của mình phải tốt lên chứ<br>
 ;> a cũng đéo phải người hay hoài niệm, sống trong quá khứ đâu e<br>
 ;> mấy group xem bói online thấy bịp vãi lun e<br>
-;> có nhớ thương a hem e
+;> có nhớ thương a hem e<br>
+;> e làm kinh doanh z chứ cái app 1 triệu users đổ lên là nhìu hả e
