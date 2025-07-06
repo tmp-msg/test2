@@ -8,4 +8,5 @@
 ;> mùa dịch ngta ở nhà chứ con mẹ này mua quần áo sộp pe, mua xăng chạy còng còng ngoài lộ<br>
 ;> tính cách sao là khó thay đổi lắm e<br>
 ;> sao lướt fb cứ đầu độc mua xe trước ròi mua nhà quài z ta<br>
-;> đúng là trên mạng nhìu cái xàm, ko nên nghe thật e
+;> đúng là trên mạng nhìu cái xàm, ko nên nghe thật e<br>
+;> mxh cũng là 1 đứa đéo nào đó viết ròi dựa trên thuật toán nó đẩy bài lên thôi như buff like, buff tương tác ảo đồ ý e
