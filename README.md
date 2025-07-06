@@ -19,4 +19,7 @@
 ;> a cũng đéo phải người hay hoài niệm, sống trong quá khứ đâu e<br>
 ;> mấy group xem bói online thấy bịp vãi lun e<br>
 ;> có nhớ thương a hem e<br>
-;> e làm kinh doanh z chứ cái app 1 triệu users đổ lên là nhìu hả e
+;> e làm kinh doanh z chứ cái app 1 triệu users đổ lên là nhìu hả e<br>
+;> a vs con mẹ già đó đâu ưa gì nhau, tại vì con mẹ đó sống trong quá khứ thành ra hay spam làm phiền a<br>
+;> ghét nhau thì kệ mẹ nhau, a đâu có liên quan gì nó nữa<br>
+;> kiểu bị phiền á e hĩu hem
