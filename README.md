@@ -30,4 +30,8 @@
 ;> cũng chả bệnh tật gì, mua 2 liều thuốc 14k uống 1 liều là hết còn 1 liều để dành<br>
 ;> đi coi bói có ai chê a cái gì đâu<br>
 ;> hơn 30 tuổi lại coi bói tiếp thôi e =))<br>
-;> a làm chỉ nuôi thân có nuôi ai đâu e
+;> a làm chỉ nuôi thân có nuôi ai đâu e<br>
+;> hồi a đi học á, có mấy đứa hô lập gia đình sớm cho ổn định<br>
+;> tụi nó nói vs nhau quài chứ gì e<br>
+;> nó nghĩ cạn, nó cũng đâu sống thay mình đâu, cuộc sống ai nấy sống thôi<br>
+;> 
