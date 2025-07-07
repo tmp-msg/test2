@@ -4,4 +4,5 @@
 ;> hỏi cho vui thôi e =))<br>
 ;> hồi a đi làm cho e thì nhỏ bạn mập mập coi hình nó hô e nhìn ngon =))<br>
 ;> mấy nay có móc lavabo hem e<br>
-;> chem chép khô hay ướt
+;> chem chép khô hay ướt<br>
+;> lavabo bị ngẹt hay sao mà e hay móc hả
