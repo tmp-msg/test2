@@ -6,4 +6,5 @@
 ;> mấy nay có móc lavabo hem e<br>
 ;> chem chép khô hay ướt<br>
 ;> lavabo bị ngẹt hay sao mà e hay móc hả<br>
-;> đâu cởi quần a coi coi
+;> đâu cởi quần a coi coi<br>
+;> ngủ đi e, a ngủ đây
