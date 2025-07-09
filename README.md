@@ -23,4 +23,5 @@
 ;> ![Uploading image.png…]()<br>
 ;> dì a có mua con vespa 70 củ gì đó<br>
 ;> bả hô chạy ngon lắm<br>
-;> xưa bả chạy vision xong làm tự mua vespa
+;> xưa bả chạy vision xong làm tự mua vespa<br>
+=)) coi z chứ a hong có mua
