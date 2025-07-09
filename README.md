@@ -15,4 +15,7 @@
 ;> để hôm nào a fix thử coi<br>
 ;> nhà a chắc xe đắt tiền nhất tầm hơn 30 củ à<br>
 ;> hồi mới ra trường ông bạn học chung a mua xe cũ chạy, xe cũ ngoài wave vs future ít mất giá chứ xe khác mất giá<br>
-;> xe tay ga khác chạy cũ 1 thời gian bằng xe wave =))
+;> xe tay ga khác chạy cũ 1 thời gian bằng xe wave =))<BR>
+![image](https://github.com/user-attachments/assets/2ebe8b1a-43be-4b26-a01c-9846df8390b1)<br>
+![image](https://github.com/user-attachments/assets/27557f5c-5ce1-4a76-a771-40dc8ddfe82d)<br>
+;> chạy sh bao giàu e
