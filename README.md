@@ -12,4 +12,6 @@
 ;> đối vs e bao nhiu tỉ để gọi là tự do tài chính e<br>
 ;> vs a vài chục tỉ =))<br>
 ;> ngta xài cái tool gì mà nó đăng bài đi mà mình click vô là nó biết mình xem<br>
-;> để hôm nào a fix thử coi
+;> để hôm nào a fix thử coi<br>
+;> nhà a chắc xe đắt tiền nhất tầm hơn 30 củ à<br>
+;> 
