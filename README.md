@@ -14,4 +14,5 @@
 ;> ngta xài cái tool gì mà nó đăng bài đi mà mình click vô là nó biết mình xem<br>
 ;> để hôm nào a fix thử coi<br>
 ;> nhà a chắc xe đắt tiền nhất tầm hơn 30 củ à<br>
+;> hồi mới ra trường ông bạn học chung a mua xe cũ chạy, xe cũ ngoài wave vs future ít mất giá chứ xe khác mất giá<br>
 ;> 
