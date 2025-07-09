@@ -19,5 +19,7 @@
 ![image](https://github.com/user-attachments/assets/2ebe8b1a-43be-4b26-a01c-9846df8390b1)<br>
 ![image](https://github.com/user-attachments/assets/27557f5c-5ce1-4a76-a771-40dc8ddfe82d)<br>
 ;> chạy sh bao giàu e<br>
-![Uploading image.png…]()<br>
-;> 
+![image](https://github.com/user-attachments/assets/78f79d9e-e1cb-498d-8ec7-b33764128419)<br>
+;> ![Uploading image.png…]()<br>
+;> dì a có mua con vespa 70 củ gì đó<br>
+;> bả hô chạy ngon lắm
