@@ -11,4 +11,5 @@
 ;> a đéo dạy đời ai trên mạng online cả, lên mạng xài nick clone cải như chó vs ng này ng kia hong hay<br>
 ;> đối vs e bao nhiu tỉ để gọi là tự do tài chính e<br>
 ;> vs a vài chục tỉ =))<br>
-;> ngta xài cái tool gì mà nó đăng bài đi mà mình click vô là nó biết mình xem
+;> ngta xài cái tool gì mà nó đăng bài đi mà mình click vô là nó biết mình xem<br>
+;> để hôm nào a fix thử coi
