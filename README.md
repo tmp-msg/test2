@@ -22,4 +22,5 @@
 ![image](https://github.com/user-attachments/assets/78f79d9e-e1cb-498d-8ec7-b33764128419)<br>
 ;> ![Uploading image.png…]()<br>
 ;> dì a có mua con vespa 70 củ gì đó<br>
-;> bả hô chạy ngon lắm
+;> bả hô chạy ngon lắm<br>
+;> xưa bả chạy vision xong làm tự mua vespa
