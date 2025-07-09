@@ -6,4 +6,4 @@
 ;> nghe mùi xạo lòn e<br>
 ;> gặp a chạy grap chắc 100k 1 ngày là cùng<br>
 ;> a book grap ròi a biết<br>
-;> 
+;> a chạy grap xong a ốm nhôm đen đúa
