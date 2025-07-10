@@ -13,4 +13,7 @@
 ;> dì a làm thụ tinh nhân tạo cho bồ bả biết nhiu hem 600 củ á =))<br>
 ;> <img width="444" height="414" alt="image" src="https://github.com/user-attachments/assets/86368731-d6c0-4a74-8095-e2847ba48d52" /><br>
 ;> bả cung hoàng đạo giống a mà khác tháng thôi tháng 5 a tháng 4<br>
-;> thg bé đó con lai giữa việt nam vs đan mạch mà
+;> thg bé đó con lai giữa việt nam vs đan mạch mà<br>
+;> giờ mà a có gia đình phải nuôi gia đình là thất nghiệp 1 phát là a phải nôn đi kiếm tiền liền<br>
+;> còn a còn trẻ thì a cứ chill thôi =))<br>
+;> lúc có gia đình mà thất nghiệp chắc stress lắm e
