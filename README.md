@@ -10,5 +10,4 @@
 ;> lương dev thấp thua công nhân, ko đóng bảo hiểm, nợ lương =))<br>
 ;> thôi e để tự nhiên thì 40 tuổi e ở chung vs a<br>
 ;> chứ thị trường giờ chán quá<br>
-![Uploading image.png…]()<br>
-=)) hề hước e
+;> thôi e đợi vài năm nữa đi
