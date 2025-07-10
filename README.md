@@ -12,4 +12,5 @@
 ;> ủa mà qua nay a có đòi ctay e đâu, a có bh dăng gì lên internet đâu<br>
 ;> dì a làm thụ tinh nhân tạo cho bồ bả biết nhiu hem 600 củ á =))<br>
 ;> <img width="444" height="414" alt="image" src="https://github.com/user-attachments/assets/86368731-d6c0-4a74-8095-e2847ba48d52" /><br>
-;> bả cung hoàng đạo giống a mà khác tháng thôi tháng 5 a tháng 4
+;> bả cung hoàng đạo giống a mà khác tháng thôi tháng 5 a tháng 4<br>
+;> thg bé đó con lai giữa việt nam vs đan mạch mà
