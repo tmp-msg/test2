@@ -3,4 +3,5 @@
 ;> trên mạng giờ láo quá hén e<br>
 ;> a vô tình lướt trúng video của lê dương bảo lâm hô long nheo là gì e, e cùng quê mà<br>
 ;> long nheo là long mày hay long mi e<br>
-;> e bị hôi miệng hay gì e
+;> e bị hôi miệng hay gì e<br>
+;> nghỉ nấu cháo lưỡi lun e
