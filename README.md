@@ -4,4 +4,5 @@
 ;> a vô tình lướt trúng video của lê dương bảo lâm hô long nheo là gì e, e cùng quê mà<br>
 ;> long nheo là long mày hay long mi e<br>
 ;> e bị hôi miệng hay gì e<br>
-;> nghỉ nấu cháo lưỡi lun e
+;> nghỉ nấu cháo lưỡi lun e<br>
+;> a mà an phận là bây giờ a vẫn làm cho e ròi nói thật lun e
