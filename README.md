@@ -19,4 +19,4 @@
 ;> lúc có gia đình mà thất nghiệp chắc stress lắm e<br>
 ;> mấy ng mà thất nghiệp lúc hơn 40 tuổi chắc xì trét lắm e<br>
 ;> hơn 40 tuổi thất nghiệp là đổi nghề ròi, vì già éo ai mướn nữa e<br>
-;> 
+;> ngủ ngon e, bye e
