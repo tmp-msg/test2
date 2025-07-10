@@ -9,4 +9,7 @@
 ;> a đâu có bị hôi miệng đâu e, mà e hôi miệng là ko hun hít đc đâu e<br>
 ;> a thích e lạc quan, vì e mới hơn 30 thôi vẫn trẻ e ạ<br>
 ;> e cứ chăm bản thân thật tốt đợi a đến làm chồng e<br>
-;> ủa mà qua nay a có đòi ctay e đâu, a có bh dăng gì lên internet đâu
+;> ủa mà qua nay a có đòi ctay e đâu, a có bh dăng gì lên internet đâu<br>
+;> dì a làm thụ tinh nhân tạo cho bồ bả biết nhiu hem 600 củ á =))<br>
+;> <img width="444" height="414" alt="image" src="https://github.com/user-attachments/assets/86368731-d6c0-4a74-8095-e2847ba48d52" /><br>
+;> bả cung hoàng đạo giống a mà khác tháng thôi tháng 5 a tháng 4
