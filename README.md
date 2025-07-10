@@ -7,4 +7,5 @@
 ;> nghỉ nấu cháo lưỡi lun e<br>
 ;> a mà an phận là bây giờ a vẫn làm cho e ròi nói thật lun e<br>
 ;> a đâu có bị hôi miệng đâu e, mà e hôi miệng là ko hun hít đc đâu e<br>
-;> a thích e lạc quan, vì e mới hơn 30 thôi vẫn trẻ e ạ
+;> a thích e lạc quan, vì e mới hơn 30 thôi vẫn trẻ e ạ<br>
+;> e cứ chăm bản thân thật tốt đợi a đến làm chồng e
