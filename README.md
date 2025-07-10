@@ -16,4 +16,7 @@
 ;> thg bé đó con lai giữa việt nam vs đan mạch mà<br>
 ;> giờ mà a có gia đình phải nuôi gia đình là thất nghiệp 1 phát là a phải nôn đi kiếm tiền liền<br>
 ;> còn a còn trẻ thì a cứ chill thôi =))<br>
-;> lúc có gia đình mà thất nghiệp chắc stress lắm e
+;> lúc có gia đình mà thất nghiệp chắc stress lắm e<br>
+;> mấy ng mà thất nghiệp lúc hơn 40 tuổi chắc xì trét lắm e<br>
+;> hơn 40 tuổi thất nghiệp là đổi nghề ròi, vì già éo ai mướn nữa e<br>
+;> 
