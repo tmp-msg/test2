@@ -5,4 +5,5 @@
 ;> long nheo là long mày hay long mi e<br>
 ;> e bị hôi miệng hay gì e<br>
 ;> nghỉ nấu cháo lưỡi lun e<br>
-;> a mà an phận là bây giờ a vẫn làm cho e ròi nói thật lun e
+;> a mà an phận là bây giờ a vẫn làm cho e ròi nói thật lun e<br>
+;> a đâu có bị hôi miệng đâu e, mà e hôi miệng là ko hun hít đc đâu e
