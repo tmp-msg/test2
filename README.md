@@ -7,4 +7,8 @@
 ;> pv hôm 19/6 vl cả tháng mới pv<br>
 ;> cty hảm lòn nhìu quá e<br>
 ;> mới apply cty kia bị phốt nợ lương, chậm lương =))<br>
-;> lương dev thấp thua công nhân, ko đóng bảo hiểm, nợ lương =))
+;> lương dev thấp thua công nhân, ko đóng bảo hiểm, nợ lương =))<br>
+;> thôi e để tự nhiên thì 40 tuổi e ở chung vs a<br>
+;> chứ thị trường giờ chán quá<br>
+![Uploading image.png…]()<br>
+=)) hề hước e
