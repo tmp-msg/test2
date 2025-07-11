@@ -10,4 +10,5 @@
 <img width="1027" height="1108" alt="image" src="https://github.com/user-attachments/assets/82d1faf5-2338-4f99-a491-692cbb1647ac" /><br>
 ;> vl e<br>
 <img width="926" height="907" alt="image" src="https://github.com/user-attachments/assets/4ead529f-1dc8-4dbf-b1da-ec5b81057429" /><br>
-;> e học làm món này đi e
+;> e học làm món này đi e<br>
+;> e đi công tác thì a ăn mì gói
