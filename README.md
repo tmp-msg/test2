@@ -5,4 +5,5 @@
 ;> nhìn miếng sáp wax lông ghê quá e<br>
 ;> ko biết nấu ăn thì học dần thôi e<br>
 ;> a cũng có biết nấu đâu<br>
-;> ăn tiệm ròi học dần thôi e
+;> ăn tiệm ròi học dần thôi e<br>
+;> ko gặp a là e ở giá cả đời à
