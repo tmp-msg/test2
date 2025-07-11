@@ -4,4 +4,6 @@
 ;> làm tháng chắc tệ nào 15 củ mới thoải mái z đc e<br>
 ;> điện nước nữa là cho gần 10 củ<br>
 ;> 1 tháng chi 10 củ là thu nhập tệ nào phải hơn 20 củ e<br>
-;> 1 tháng ở sì gòn e sài nhiu e
+;> 1 tháng ở sì gòn e sài nhiu e<br>
+;> nhỏ nào trên tiktok đi làm ngày ăn 500k chắc nhỏ đó làm sugar baby e<br>
+;> 
