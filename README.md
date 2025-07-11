@@ -6,4 +6,6 @@
 ;> 1 tháng chi 10 củ là thu nhập tệ nào phải hơn 20 củ e<br>
 ;> 1 tháng ở sì gòn e sài nhiu e<br>
 ;> nhỏ nào trên tiktok đi làm ngày ăn 500k chắc nhỏ đó làm sugar baby e<br>
-;> làm vài triệu ăn kiểu đó chắc mạc
+;> làm vài triệu ăn kiểu đó chắc mạc<br>
+<img width="1027" height="1108" alt="image" src="https://github.com/user-attachments/assets/82d1faf5-2338-4f99-a491-692cbb1647ac" /><br>
+;> vl e
