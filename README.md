@@ -6,4 +6,5 @@
 ;> ko biết nấu ăn thì học dần thôi e<br>
 ;> a cũng có biết nấu đâu<br>
 ;> ăn tiệm ròi học dần thôi e<br>
-;> ko gặp a là e ở giá cả đời à
+;> ko gặp a là e ở giá cả đời à<br>
+;> gặp a là mún có gia đình liển hả
