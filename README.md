@@ -11,4 +11,6 @@
 ;> vl e<br>
 <img width="926" height="907" alt="image" src="https://github.com/user-attachments/assets/4ead529f-1dc8-4dbf-b1da-ec5b81057429" /><br>
 ;> e học làm món này đi e<br>
-;> e đi công tác thì a ăn mì gói
+;> e đi công tác thì a ăn mì gói<br>
+;> bữa thấy thg nào trên mạng wax lông chem chép e<br>
+;> ai trật quần ra cho thg nào wax trời
