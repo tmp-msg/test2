@@ -12,4 +12,5 @@
 ;> ngta hô trai bắc keo, khó tính, gia trưởng chắc chỉ đúng vs ngày xưa thôi e<br>
 ;> làm gì 2k1 lương 30 củ dữ z e, éo hỉu là làm gì<br>
 ;> sao mà ngu mà kiếm đc 30 củ dữ z trời<br>
-;> hay nhà báo nói phóng e
+;> hay nhà báo nói phóng e<br>
+;> mà lương ở hà nội a thấy nhỉnh hơn ở hồ chí minh á e<br>
