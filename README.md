@@ -1,16 +1,2 @@
-;> e học làm món này đi e<br>
-;> e đi công tác thì a ăn mì gói<br>
-;> bữa thấy thg nào trên mạng wax lông chem chép e<br>
-;> ai trật quần ra cho thg nào wax trời<br>
-;> nhìn miếng sáp wax lông ghê quá e<br>
-;> ko biết nấu ăn thì học dần thôi e<br>
-;> a cũng có biết nấu đâu<br>
-;> ăn tiệm ròi học dần thôi e<br>
-;> ko gặp a là e ở giá cả đời à<br>
-;> gặp a là mún có gia đình liển hả<br>
-;> trên mạng có con nhỏ đào mỏ nhung layla bào bạn trai 2k1 lương 30 củ tử tử kìa e<br>
-;> ngta hô trai bắc keo, khó tính, gia trưởng chắc chỉ đúng vs ngày xưa thôi e<br>
-;> làm gì 2k1 lương 30 củ dữ z e, éo hỉu là làm gì<br>
-;> sao mà ngu mà kiếm đc 30 củ dữ z trời<br>
-;> hay nhà báo nói phóng e<br>
-;> mà lương ở hà nội a thấy nhỉnh hơn ở hồ chí minh á e<br>
+<img width="982" height="1079" alt="image" src="https://github.com/user-attachments/assets/01a3640a-d204-4eea-8855-4cbfe2e4bb47" /><br>
+;> nhìn fafe lừa đảo chetme lun e
