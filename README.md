@@ -10,4 +10,5 @@
 ;> a thấy sao mấy đứa overthinking sống thấy mệt quá hén e<br>
 ;> e có overthinking hemm<br>
 ;> mấy đứa tóc xoăn auto khổ e<br>
-;> hôm nào cho a mượn đùi nằm coi e, tóc a mượt lắm, ko hói
+;> hôm nào cho a mượn đùi nằm coi e, tóc a mượt lắm, ko hói<br>
+;> ngủ ngon e, a bùn ngủ goỳ
