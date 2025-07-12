@@ -7,4 +7,5 @@
 ;> mở cty đéo cần khách lun =))<br>
 ;> <img width="512" height="586" alt="image" src="https://github.com/user-attachments/assets/4f8c97a2-607a-427b-83fa-fb11a5cf8645" /><br>
 ;> 100% lừa đảo<br>
-;> 
+;> tuyển dụng đéo để JD mà kêu inbox JD vl<br>
+;> sợ ngta apply á e
