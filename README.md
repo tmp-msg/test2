@@ -3,3 +3,6 @@
 ;> bữa thấy vị trí phù hợp mà hỏi ra thì website cty thì ko có mail cũng đéo có<br>
 ;> mà có thì mail free nữa e<br>
 =)) ụ móa thg nào lừa đảo mà hô cty làm về bảo mật đéo cung cấp website<br>
+=))) cty đéo có website nào giờ e nghe bao giờ chưa<br>
+;> mở cty đéo cần khách lun =))<br>
+;> 
