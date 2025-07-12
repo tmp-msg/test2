@@ -9,4 +9,5 @@
 ;> 100% lừa đảo<br>
 ;> tuyển dụng đéo để JD mà kêu inbox JD vl<br>
 ;> sợ ngta apply á e<br>
-=)) e hình dung 1 cty mà đéo có website bao giờ chưa e, nghĩa là nó đéo cần khách
+=)) e hình dung 1 cty mà đéo có website bao giờ chưa e, nghĩa là nó đéo cần khách<br>
+=)) cần thì a gọi thẳng tới HR cty đó hỏi có tuyển vị trí này ko lun chứ ở đó mà lừa a
