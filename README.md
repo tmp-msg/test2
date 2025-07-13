@@ -7,4 +7,6 @@
 ;> ganh tị chỉ mệt thêm thôi e<br>
 ;> lên mạng thấy ai giàu hơn mình a thấy cũng bth<br>
 ;> rảnh coi chơi thôi e trên mạng bịp lắm<br>
-;> mấy nay e có học nấu ăn hem
+;> mấy nay e có học nấu ăn hem<br>
+;> bữa đứa đéo nào lấy thông tin của a đi đăng kí xuất khẩu lao động nhật vl thật<br>
+;> xong ngta gọi, a hô ko đi thế thôi
