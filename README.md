@@ -16,4 +16,6 @@
 ;> huống chi vay app, cờ bạc đc<br>
 ;> chơi bài bạc a mặc định mất tiền thua ròi<br>
 <img width="880" height="1285" alt="image" src="https://github.com/user-attachments/assets/e26c2954-ce19-468b-b849-fa7f948e3993" /><br>
-;> chatgpt đoán khá chuẩn e
+;> chatgpt đoán khá chuẩn e<br>
+;> còn này của e<br>
+<img width="1252" height="659" alt="image" src="https://github.com/user-attachments/assets/0f754647-d40f-4e85-88f2-f02492404277" />
