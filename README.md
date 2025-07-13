@@ -14,4 +14,4 @@
 ;> thời buổi giờ xạo lòn vs bịp bợm dữ lắm e<br>
 ;> a đánh bài vs mấy thg trong cty cũ ăn thua 30k thôi mà a còn éo chơi<br>
 ;> huống chi vay app, cờ bạc đc<br>
-;>
+;> chơi bài bạc a mặc định mất tiền thua ròi
