@@ -9,4 +9,5 @@
 ;> rảnh coi chơi thôi e trên mạng bịp lắm<br>
 ;> mấy nay e có học nấu ăn hem<br>
 ;> bữa đứa đéo nào lấy thông tin của a đi đăng kí xuất khẩu lao động nhật vl thật<br>
-;> xong ngta gọi, a hô ko đi thế thôi
+;> xong ngta gọi, a hô ko đi thế thôi<br>
+;> ngta hô a apply bên topCV, móa apply lúc nào đúng bịp
