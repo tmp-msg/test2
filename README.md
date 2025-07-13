@@ -14,4 +14,6 @@
 ;> thời buổi giờ xạo lòn vs bịp bợm dữ lắm e<br>
 ;> a đánh bài vs mấy thg trong cty cũ ăn thua 30k thôi mà a còn éo chơi<br>
 ;> huống chi vay app, cờ bạc đc<br>
-;> chơi bài bạc a mặc định mất tiền thua ròi
+;> chơi bài bạc a mặc định mất tiền thua ròi<br>
+<img width="880" height="1285" alt="image" src="https://github.com/user-attachments/assets/e26c2954-ce19-468b-b849-fa7f948e3993" /><br>
+;> chatgpt đoán khá chuẩn e
