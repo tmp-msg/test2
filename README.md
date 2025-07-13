@@ -19,4 +19,6 @@
 ;> chatgpt đoán khá chuẩn e<br>
 ;> còn này của e<br>
 <img width="1252" height="659" alt="image" src="https://github.com/user-attachments/assets/0f754647-d40f-4e85-88f2-f02492404277" /><br>
-;> thấy nó nói chuẩn ko e
+;> thấy nó nói chuẩn ko e<br>
+;> test lần 2, khá chuẩn e<br>
+<img width="614" height="1140" alt="image" src="https://github.com/user-attachments/assets/9842cc8c-2fbc-4282-9653-0013ed50c15c" />
