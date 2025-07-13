@@ -1,2 +1,3 @@
 ;> a nhô e<br>
-;> nay e làm gì á e
+;> nay e làm gì á e<br>
+;> tí a nhắn cho e nhe
