@@ -10,4 +10,5 @@
 ;> thành ra dự án thiếu nhi đó đắp chiếu ròi<br>
 ;> a viết xong ròi mà a chưa đẩy lên<br>
 =)) xong tự dưng bị đuổi vl thật<br>
-;> móa chắc đợi viết xong đuổi ai dè chưa đẩy code lên, quả báo liền
+;> móa chắc đợi viết xong đuổi ai dè chưa đẩy code lên, quả báo liền<br>
+;> ổng làm giám đốc chứ ổng search chatgpt nghe tin sái cổ chứ có pro coder chuyên tech qq gì e
