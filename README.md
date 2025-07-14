@@ -11,4 +11,5 @@
 ;> a viết xong ròi mà a chưa đẩy lên<br>
 =)) xong tự dưng bị đuổi vl thật<br>
 ;> móa chắc đợi viết xong đuổi ai dè chưa đẩy code lên, quả báo liền<br>
-;> ổng làm giám đốc chứ ổng search chatgpt nghe tin sái cổ chứ có pro coder chuyên tech qq gì e
+;> ổng làm giám đốc chứ ổng search chatgpt nghe tin sái cổ chứ có pro coder chuyên tech qq gì e<br>
+;> cty ổng thì bên 3XC phân phối license key cho ổng ròi ổng làm trang CRM nữa ổng bán dịch vụ, ăn tiền theo tháng mà
