@@ -18,4 +18,5 @@
 ;> kiểu dễ mà ai search chatgpt cũng làm đc ý e<br>
 =)) để mốt đuổi ko bị thọt chứ ko gì, a nghĩ z<br>
 ;> a đâu thể nào mà search chatgpt xong làm tương đương 1 kỹ sư AI hay là frontend đc<br>
-;> môn ai nấy chơi à
+;> môn ai nấy chơi à<br>
+;> làm cty đó bào giờ vs hay bị đe dọa đuổi stress lắm
