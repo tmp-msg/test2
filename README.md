@@ -16,4 +16,6 @@
 ;> ổng hướng đến cái gì mà dễ hỉu hem, chứ ko có quằn quại tech nhìu<br>
 ;> như e z là tech hơi nhìu đó<br>
 ;> kiểu dễ mà ai search chatgpt cũng làm đc ý e<br>
-=)) để mốt đuổi ko bị thọt chứ ko gì, a nghĩ z
+=)) để mốt đuổi ko bị thọt chứ ko gì, a nghĩ z<br>
+;> a đâu thể nào mà search chatgpt xong làm tương đương 1 kỹ sư AI hay là frontend đc<br>
+;> môn ai nấy chơi à
