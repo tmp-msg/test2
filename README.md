@@ -7,4 +7,7 @@
 ;> bị vướng phần API của a, trong cty thì tụi onsite ko làm đc<br>
 ;> tuyển ko đc thành ra là giờ tuyển lead python odoo lun mà e<br>
 ;> API quan trọng ko mún cho outsource viết đó e<br>
-;> thành ra dự án thiếu nhi đó đắp chiếu ròi
+;> thành ra dự án thiếu nhi đó đắp chiếu ròi<br>
+;> a viết xong ròi mà a chưa đẩy lên<br>
+=)) xong tự dưng bị đuổi vl thật<br>
+;> móa chắc đợi viết xong đuổi ai dè chưa đẩy code lên, quả báo liền
