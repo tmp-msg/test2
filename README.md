@@ -24,4 +24,5 @@
 ;> <img width="1187" height="215" alt="image" src="https://github.com/user-attachments/assets/0f9360f9-fa4c-407b-aab8-84bc9ee705b0" /><br>
 =)) tuyển lead mà ,đuổi cái a làm chung a lun, tuyển đc là đuổi lun<br>
 ;> tức là đang cần làm cái dự án nọ đi thì tuyển đc làm cho xong cái dự án này là đuổi<br>
-;> e hỉu z đó, chừa lại 2-3 người gì đủ để maintain thôi e
+;> e hỉu z đó, chừa lại 2-3 người gì đủ để maintain thôi e<br>
+;> outsource thì chắc chắn z ròi còn nhân sự trong cty thì thấy ko ngoan là cho cút
