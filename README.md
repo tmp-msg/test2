@@ -21,4 +21,5 @@
 ;> môn ai nấy chơi à<br>
 ;> làm cty đó bào giờ vs hay bị đe dọa đuổi stress lắm<br>
 ;> cty đó tuyển python odoo còn khó tuyển dữ nửa e =)))<br>
-;> 
+;> <img width="1187" height="215" alt="image" src="https://github.com/user-attachments/assets/0f9360f9-fa4c-407b-aab8-84bc9ee705b0" /><br>
+=)) tuyển lead mà ,đuổi cái a làm chung a lun, tuyển đc là đuổi lun
