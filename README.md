@@ -19,4 +19,6 @@
 =)) để mốt đuổi ko bị thọt chứ ko gì, a nghĩ z<br>
 ;> a đâu thể nào mà search chatgpt xong làm tương đương 1 kỹ sư AI hay là frontend đc<br>
 ;> môn ai nấy chơi à<br>
-;> làm cty đó bào giờ vs hay bị đe dọa đuổi stress lắm
+;> làm cty đó bào giờ vs hay bị đe dọa đuổi stress lắm<br>
+;> cty đó tuyển python odoo còn khó tuyển dữ nửa e =)))<br>
+;> 
