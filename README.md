@@ -12,4 +12,8 @@
 =)) xong tự dưng bị đuổi vl thật<br>
 ;> móa chắc đợi viết xong đuổi ai dè chưa đẩy code lên, quả báo liền<br>
 ;> ổng làm giám đốc chứ ổng search chatgpt nghe tin sái cổ chứ có pro coder chuyên tech qq gì e<br>
-;> cty ổng thì bên 3XC phân phối license key cho ổng ròi ổng làm trang CRM nữa ổng bán dịch vụ, ăn tiền theo tháng mà
+;> cty ổng thì bên 3XC phân phối license key cho ổng ròi ổng làm trang CRM nữa ổng bán dịch vụ, ăn tiền theo tháng mà<br>
+;> ổng hướng đến cái gì mà dễ hỉu hem, chứ ko có quằn quại tech nhìu<br>
+;> như e z là tech hơi nhìu đó<br>
+;> kiểu dễ mà ai search chatgpt cũng làm đc ý e<br>
+=)) để mốt đuổi ko bị thọt chứ ko gì, a nghĩ z
