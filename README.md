@@ -25,4 +25,5 @@
 =)) tuyển lead mà ,đuổi cái a làm chung a lun, tuyển đc là đuổi lun<br>
 ;> tức là đang cần làm cái dự án nọ đi thì tuyển đc làm cho xong cái dự án này là đuổi<br>
 ;> e hỉu z đó, chừa lại 2-3 người gì đủ để maintain thôi e<br>
-;> outsource thì chắc chắn z ròi còn nhân sự trong cty thì thấy ko ngoan là cho cút
+;> outsource thì chắc chắn z ròi còn nhân sự trong cty thì thấy ko ngoan là cho cút<br>
+;> suy thoái mà e làm IT hơi rủi ro, làm cty outsource mà mới đẻ là ko có khách nó cho nghỉ, nợ lương lun
