@@ -7,4 +7,5 @@
 ;> ít bữa mới đẩy code e<br>
 ;> a iu sắp ngủ ròi e mún nói gì hem<br>
 ;> đang fake thời gian e =))<br>
-<img width="1606" height="720" alt="image" src="https://github.com/user-attachments/assets/37a834d4-8b04-486f-89d3-af8e578c8c64" />
+<img width="1606" height="720" alt="image" src="https://github.com/user-attachments/assets/37a834d4-8b04-486f-89d3-af8e578c8c64" /><br>
+;> thôi ngủ đi e, ngủ ngon
