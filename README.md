@@ -15,4 +15,7 @@
 ;> a viết trên đây cho mẻ coi mà e =))<br>
 ;> giờ chắc đang khổ vì tiền ko tiền nuôi con =))<br>
 ;> già chắc gì con nuôi lại, ít ai mà nuôi lại cha mẹ lắm e<br>
-;> đa phần là cho ít tiền xong ròi chăm lúc bệnh đau, làm đám ma thôi e
+;> đa phần là cho ít tiền xong ròi chăm lúc bệnh đau, làm đám ma thôi e<br>
+;> chứ mà ở ko đéo làm gì con nuôi trọn gói thì a chưa thấy bao giờ<br>
+;> con phải rất giàu, cha mẹ mới hít hơi đc 1 tí thôi e<br>
+;> đã nghèo còn mua tool ảo tưởng làm hacker =))
