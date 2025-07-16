@@ -19,4 +19,6 @@
 ;> chứ mà ở ko đéo làm gì con nuôi trọn gói thì a chưa thấy bao giờ<br>
 ;> con phải rất giàu, cha mẹ mới hít hơi đc 1 tí thôi e<br>
 ;> đã nghèo còn mua tool ảo tưởng làm hacker =))<br>
-;> thấy ai lên mạng xin tiền lừa đảo nha e
+;> thấy ai lên mạng xin tiền lừa đảo nha e<br>
+;> chắc tưởng xài tool là bùng vay app đc, vay app vay online mà e nhìu khi nghĩ quỵt đc ai dè đéo =))<br>
+;> cuộc sống mình đéo lo lo sân si mạng xã hội
