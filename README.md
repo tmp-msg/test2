@@ -24,4 +24,6 @@
 ;> mua mì bỏ rau tôm thịt bò mực vô, xong làm nước tương tỏi ớt, có đợt a hay ăn z<br>
 ;> a đang tả mì xào<br>
 ;> chắc mẹ lòn này vay app =))<br>
-;> vay app tưởng ăn dựt đc tiền ngta ai dè lòi lòn =))
+;> vay app tưởng ăn dựt đc tiền ngta ai dè lòi lòn =))<br>
+;> e mún cuối năm ăn nằm ở chung a hay sao e<br>
+;> khuya gòi ngủ đi e
