@@ -10,4 +10,5 @@
 ;> già sắp xuống lỗ mà tay trắng lên mạng nổ viết blog tháng tiền trăm tiền triệu đất nhà ê hề lun e<br>
 ;> ngoài đời có mỗi cái lồn =))<br>
 ;> vay nợ tiền đéo trả là xong đéo ai làm gì mình =))<br>
-;> tiền của ng khác lấy làm của mình mà bản thân tỏ ra tốt lành =))
+;> tiền của ng khác lấy làm của mình mà bản thân tỏ ra tốt lành =))<br>
+;> già ròi nhìu khi ko có tiền trong mình trổ bệnh 1 cái là mệt =))
