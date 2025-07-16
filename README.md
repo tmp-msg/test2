@@ -21,4 +21,5 @@
 ;> giờ cơm đéo có mà ăn =))<br>
 ;> chắc ăn mì hảo hảo 4k 1 gói, hột gà hột vịt thôi e<br>
 ;> a đéo biết nấu món gì cho e a sẽ nấu món đó =))<br>
-;> mua mì bỏ rau tôm thịt bò mực vô, xong làm nước tương tỏi ớt, có đợt a hay ăn z
+;> mua mì bỏ rau tôm thịt bò mực vô, xong làm nước tương tỏi ớt, có đợt a hay ăn z<br>
+;> a đang tả mì xào
