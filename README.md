@@ -18,4 +18,5 @@
 ;> đa phần là cho ít tiền xong ròi chăm lúc bệnh đau, làm đám ma thôi e<br>
 ;> chứ mà ở ko đéo làm gì con nuôi trọn gói thì a chưa thấy bao giờ<br>
 ;> con phải rất giàu, cha mẹ mới hít hơi đc 1 tí thôi e<br>
-;> đã nghèo còn mua tool ảo tưởng làm hacker =))
+;> đã nghèo còn mua tool ảo tưởng làm hacker =))<br>
+;> thấy ai lên mạng xin tiền lừa đảo nha e
