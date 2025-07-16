@@ -19,3 +19,5 @@
 ;> e nào giờ có giúp a đc cc gì<br>
 ;> con mẹ đầu quăng đó vay nợ đéo có khả năng trả =))<br>
 ;> giờ cơm đéo có mà ăn =))<br>
+;> chắc ăn mì hảo hảo 4k 1 gói, hột gà hột vịt thôi e<br>
+;> 
