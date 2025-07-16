@@ -14,4 +14,5 @@
 ;> già ròi nhìu khi ko có tiền trong mình trổ bệnh 1 cái là mệt =))<br>
 ;> người có số mà e nhìu ng a thấy khổ tới lúc die lun e<br>
 ;> chứ ko phải khổ trước sướng sau đâu e<br>
-;>
+;> đéo phải tự an ủi mình giờ khổ mốt sương =))<br>
+
