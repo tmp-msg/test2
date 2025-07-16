@@ -16,4 +16,6 @@
 ;> chứ ko phải khổ trước sướng sau đâu e<br>
 ;> đéo phải tự an ủi mình giờ khổ mốt sương =))<br>
 ;> bà đó làm phật online mà nghiệp mình đéo giải đc =))<br>
-;> e nào giờ có giúp a đc cc gì
+;> e nào giờ có giúp a đc cc gì<br>
+;> con mẹ đầu quăng đó vay nợ đéo có khả năng trả =))<br>
+;> giờ cơm đéo có mà ăn =))<br>
