@@ -21,4 +21,6 @@
 ;> đã nghèo còn mua tool ảo tưởng làm hacker =))<br>
 ;> thấy ai lên mạng xin tiền lừa đảo nha e<br>
 ;> chắc tưởng xài tool là bùng vay app đc, vay app vay online mà e nhìu khi nghĩ quỵt đc ai dè đéo =))<br>
-;> cuộc sống mình đéo lo lo sân si mạng xã hội
+;> cuộc sống mình đéo lo lo sân si mạng xã hội<br>
+;> già sắp xuống lỗ mà tay trắng lên mạng nổ viết blog tháng tiền trăm tiền triệu đất nhà ê hề lun e<br>
+;> ngoài đời có mỗi cái lồn =))
