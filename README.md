@@ -12,4 +12,7 @@
 ;> nuôi 2 thg con ko nổi vay app thôi e=))<br>
 ;> chồng làm tháng 6 củ cúng bả 2 củ<br>
 ;> chắc đi dạy z chứ trong bụng ở ác quá nghiệp, già còn khổ nữa e =))<br>
-;> a viết trên đây cho mẻ coi mà e =))
+;> a viết trên đây cho mẻ coi mà e =))<br>
+;> giờ chắc đang khổ vì tiền ko tiền nuôi con =))<br>
+;> già chắc gì con nuôi lại, ít ai mà nuôi lại cha mẹ lắm e<br>
+;> đa phần là cho ít tiền xong ròi chăm lúc bệnh đau, làm đám ma thôi e
