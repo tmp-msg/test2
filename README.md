@@ -15,4 +15,5 @@
 ;> người có số mà e nhìu ng a thấy khổ tới lúc die lun e<br>
 ;> chứ ko phải khổ trước sướng sau đâu e<br>
 ;> đéo phải tự an ủi mình giờ khổ mốt sương =))<br>
-
+;> bà đó làm phật online mà nghiệp mình đéo giải đc =))<br>
+;> e nào giờ có giúp a đc cc gì
