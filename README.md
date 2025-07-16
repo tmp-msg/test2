@@ -11,4 +11,7 @@
 ;> ngoài đời có mỗi cái lồn =))<br>
 ;> vay nợ tiền đéo trả là xong đéo ai làm gì mình =))<br>
 ;> tiền của ng khác lấy làm của mình mà bản thân tỏ ra tốt lành =))<br>
-;> già ròi nhìu khi ko có tiền trong mình trổ bệnh 1 cái là mệt =))
+;> già ròi nhìu khi ko có tiền trong mình trổ bệnh 1 cái là mệt =))<br>
+;> người có số mà e nhìu ng a thấy khổ tới lúc die lun e<br>
+;> chứ ko phải khổ trước sướng sau đâu e<br>
+;>
