@@ -7,4 +7,4 @@
 ;> con mẹ đầu quăng kia sáng giờ spam cờ bạc nợ nần ko tiền đúng khổ =))<br>
 ;> mở đt ra tượt là thấy thôi tắt mịa lun e<br>
 ;> chắc tin lời trên mạng vay app ròi quỵt ko đc giờ áp lực<br>
-;>
+;> vay app 20 củ lãnh 15 củ trả lãi lẫn gốc 60 củ =)), a đoán z, bữa lên truyền hình vụ vay app mà e trả hoài đéo hết nợ
