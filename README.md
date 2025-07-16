@@ -23,4 +23,5 @@
 ;> a đéo biết nấu món gì cho e a sẽ nấu món đó =))<br>
 ;> mua mì bỏ rau tôm thịt bò mực vô, xong làm nước tương tỏi ớt, có đợt a hay ăn z<br>
 ;> a đang tả mì xào<br>
-;> chắc mẹ lòn này vay app =))
+;> chắc mẹ lòn này vay app =))<br>
+;> vay app tưởng ăn dựt đc tiền ngta ai dè lòi lòn =))
