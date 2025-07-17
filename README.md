@@ -13,4 +13,6 @@
 ;> vap app đen mà ai cũng quỵt đc thì nó dẹp cái app đó ròi<br>
 =)) a éo có vay nợ nên a éo sợ<br>
 =)) cài app vay đen là dính mã độc ròi<br>
-;> hihi chúc mừng bạn yến lồn đen đã dính vào vòng nợ nần ko lối thoái =))
+;> hihi chúc mừng bạn yến lồn đen đã dính vào vòng nợ nần ko lối thoái =))<br>
+;> tưởng thế nào , làm phật online lảm nhảm dạy đời làm lương ko đủ sống, ở nhà trọ, mưa thì ngập nước, ko có tiền tích lũy, phải nuôi 2 con ăn học, lo đến khi lấy vợ<br>
+;> nhìu người ko có rào chuyện thiên hạ ngta giàu sụ lun e
