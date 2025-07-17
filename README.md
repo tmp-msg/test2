@@ -6,4 +6,5 @@
 ;> con mẹ kia vay app qua cccd bị đòi =))<br>
 ;> cài app đen bị truy cập hết thông tin trên đt ròi đéo trả hơi mệt =))<br>
 ;> app đen lãi cao, trả lòi lòn lun<br>
-;> e đòi ở chung a hay gì e
+;> e đòi ở chung a hay gì e<br>
+;> vay app tâm lý lo sợ ai gọi đến đòi tiền quấy phá mà e =))
