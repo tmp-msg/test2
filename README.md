@@ -9,4 +9,6 @@
 ;> e đòi ở chung a hay gì e<br>
 ;> vay app tâm lý lo sợ ai gọi đến đòi tiền quấy phá mà e =))<br>
 ;> sống dầy vò mệt mỏi mà e =))<br>
-=)) nhìu khi tường bùng đc ròi 1 ngày nào nó, nó quấy phá thì sao ai biết đc 
+=)) nhìu khi tường bùng đc ròi 1 ngày nào nó, nó quấy phá thì sao ai biết đc <br>
+;> vap app đen mà ai cũng quỵt đc thì nó dẹp cái app đó ròi<br>
+=)) a éo có vay nợ nên a éo sợ
