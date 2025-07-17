@@ -11,4 +11,6 @@
 ;> sống dầy vò mệt mỏi mà e =))<br>
 =)) nhìu khi tường bùng đc ròi 1 ngày nào nó, nó quấy phá thì sao ai biết đc <br>
 ;> vap app đen mà ai cũng quỵt đc thì nó dẹp cái app đó ròi<br>
-=)) a éo có vay nợ nên a éo sợ
+=)) a éo có vay nợ nên a éo sợ<br>
+=)) cài app vay đen là dính mã độc ròi<br>
+;> hihi chúc mừng bạn yến lồn đen đã dính vào vòng nợ nần ko lối thoái =))
