@@ -2,4 +2,6 @@
 ;> giờ đòi hỏi cao thật e<br>
 <img width="988" height="1030" alt="image" src="https://github.com/user-attachments/assets/4578e191-73d2-417e-b33d-e352fc0d6942" /><br>
 ;> đứa nào điền form xạo lòn ngta đăng lên nè e<br>
-;> e đòi cuối năm nay ở chung hả e
+;> e đòi cuối năm nay ở chung hả e<br>
+;> con mẹ kia vay app qua cccd bị đòi =))<br>
+;> cài app đen bị truy cập hết thông tin ròi đéo trả hơi mệt =))
