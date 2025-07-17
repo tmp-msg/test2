@@ -16,4 +16,5 @@
 ;> hihi chúc mừng bạn yến lồn đen đã dính vào vòng nợ nần ko lối thoái =))<br>
 ;> tưởng thế nào , làm phật online lảm nhảm dạy đời làm lương ko đủ sống, ở nhà trọ, mưa thì ngập nước, ko có tiền tích lũy, phải nuôi 2 con ăn học, lo đến khi lấy vợ<br>
 ;> nhìu người ko có rào chuyện thiên hạ ngta giàu sụ lun e<br>
-;> con mẹ yến đầu quăng này nghèo mạc lun e, mà lảm nhảm suốt ngày dạy làm giàu, làm người, triết lý xã hội
+;> con mẹ yến đầu quăng này nghèo mạc lun e, mà lảm nhảm suốt ngày dạy làm giàu, làm người, triết lý xã hội<br>
+;> mình phải có nhà cửa ngon lành, tiền bạc dư giả sống thoải mái đi lo chuyện thiên hạ e, mình lo mình đã e
