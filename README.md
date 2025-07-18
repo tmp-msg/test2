@@ -20,4 +20,5 @@
 ;> 35 là đuổi ròi<br>
 ;> đuổi tuyển ng trẻ vô e<br>
 ;> ngủ chung thử 1 đêm coi có êm ko a mới chốt e đc<br>
-;> ngủ chung bth thôi e
+;> ngủ chung bth thôi e<br>
+;> ngủ thôi e, a bùn ngủ quá, ngủ ngon e
