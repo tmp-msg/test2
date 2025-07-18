@@ -7,4 +7,8 @@
 =)) có đứa ngu đến độ mà HR pv cho đậu hay ko nữa e<br>
 =)) xạo lòn đọc là biết<br>
 =)) trên mạng nhìu đứa nói láo nói xạo vl lun e<br>
-;> lên mạng đọc xàm xàm mà tin là ngu người liền e
+;> lên mạng đọc xàm xàm mà tin là ngu người liền e<br>
+<img width="1038" height="382" alt="image" src="https://github.com/user-attachments/assets/625e3f8b-55ee-475c-bb69-23c9f8b2ac9d" /><br>
+;> a ko đồng ý vs status này<br>
+;> trên mạng có mấy đứa lậm đại học thanh hoa qq gì đó lậm tiếng trung lậm chữ lậm học hành<br>
+;> học gì cũng quy ra đi làm kiếm tiền thôi e
