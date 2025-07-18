@@ -19,4 +19,5 @@
 ;> làm tới 40 tuổi là lo sợ bị ngta đuổi rồi e<br>
 ;> 35 là đuổi ròi<br>
 ;> đuổi tuyển ng trẻ vô e<br>
-;> ngủ chung thử 1 đêm coi có êm ko a mới chốt e đc
+;> ngủ chung thử 1 đêm coi có êm ko a mới chốt e đc<br>
+;> ngủ chung bth thôi e
