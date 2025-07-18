@@ -11,4 +11,7 @@
 <img width="1038" height="382" alt="image" src="https://github.com/user-attachments/assets/625e3f8b-55ee-475c-bb69-23c9f8b2ac9d" /><br>
 ;> a ko đồng ý vs status này<br>
 ;> trên mạng có mấy đứa lậm đại học thanh hoa qq gì đó lậm tiếng trung lậm chữ lậm học hành<br>
-;> học gì cũng quy ra đi làm kiếm tiền thôi e
+;> học gì cũng quy ra đi làm kiếm tiền thôi e<br>
+;> 30 điểm thi đại học thì cũng học như ngta ròi ra đời làm thuê cho tư nhân thôi<br>
+;> may mắn hơn thì đc học bổng du học nước ngoài làm cho cty AWS,google, microsoft,..<br>
+;> 
