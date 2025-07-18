@@ -17,4 +17,6 @@
 ;> mấy đứa e họ gần nhà a thi đại học 24-26 điểm cũng chật vật kiếm việc làm lương thấp<br>
 ;> học gì cũng bơi ra xã hội kiếm tiền cải thiện cuộc sống cá nhân thôi e ơi<br>
 ;> làm tới 40 tuổi là lo sợ bị ngta đuổi rồi e<br>
-;> 35 là đuổi ròi
+;> 35 là đuổi ròi<br>
+;> đuổi tuyển ng trẻ vô e<br>
+;> 
