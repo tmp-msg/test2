@@ -15,4 +15,6 @@
 ;> 30 điểm thi đại học thì cũng học như ngta ròi ra đời làm thuê cho tư nhân thôi<br>
 ;> may mắn hơn thì đc học bổng du học nước ngoài làm cho cty AWS,google, microsoft,..<br>
 ;> mấy đứa e họ gần nhà a thi đại học 24-26 điểm cũng chật vật kiếm việc làm lương thấp<br>
-;> học gì cũng bơi ra xã hội kiếm tiền cải thiện cuộc sống cá nhân thôi e ơi
+;> học gì cũng bơi ra xã hội kiếm tiền cải thiện cuộc sống cá nhân thôi e ơi<br>
+;> làm tới 40 tuổi là lo sợ bị ngta đuổi rồi e<br>
+;> 35 là đuổi ròi
