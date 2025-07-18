@@ -6,4 +6,5 @@
 <img width="1331" height="895" alt="image" src="https://github.com/user-attachments/assets/a1d4ef2a-ef1f-4e9d-bfdb-1468e47fba9b" /><br>
 =)) có đứa ngu đến độ mà HR pv cho đậu hay ko nữa e<br>
 =)) xạo lòn đọc là biết<br>
-=)) trên mạng nhìu đứa nói láo nói xạo vl lun e
+=)) trên mạng nhìu đứa nói láo nói xạo vl lun e<br>
+;> lên mạng đọc xàm xàm mà tin là ngu người liền e
