@@ -12,4 +12,5 @@
 ;> ngoài đời mình ăn mì tôm không, chứ post hình lên mạng là phải chèn thêm tôm hùm cua hoàng đế =))<br>
 ;> đâu phải ai mặt xấu đầu bự là bần cùng nghèo đâu chắc chỉ đúng vs con mẹ này<br>
 ;> đầu bự , bằng Ths z chứ học dốt lắm e<br>
-;> bằng chứng là con bả học rất dở
+;> bằng chứng là con bả học rất dở<br>
+;> trường a là bằng trung bình khá gì là cũng học Ths đc ròi e
