@@ -22,4 +22,5 @@
 ;> cha mẹ sao là đẻ con y z à e =))<br>
 ;> con bả học dở như cớt z đó mà lên mạng spam con ngta thi 30 điểm đh, ròi đại học thanh hoa qq gì bên trung quốc á e<br>
 =)) bởi sao bả già mà làm lương 5-6 củ suốt ngày lo chuyện xã hội<br>
-;> ý chính ở đâu là mình lo cho mình trước ý e
+;> ý chính ở đâu là mình lo cho mình trước ý e<br>
+;> ai mà mắc con vợ hay thg chồng có tính cách như z cũng mạc theo nữa
