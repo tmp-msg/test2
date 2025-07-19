@@ -8,4 +8,5 @@
 =)) a lạ gì e<br>
 ;> mấy ng mà làm ở sài gòn cả đời ko nhà là mốt chet sao e<br>
 ;> ai cho thờ trong nhà trọ ngta, đem đi thiêu ròi đem lên chùa<br>
-;> nhà trọ giá bèo bèo là nhìn vô ô cửa sổ thấy hết nhà, móa nhìn vô thấy hình thờ té cớt liền e
+;> nhà trọ giá bèo bèo là nhìn vô ô cửa sổ thấy hết nhà, móa nhìn vô thấy hình thờ té cớt liền e<br>
+;> e tưởng tượng thử đi,sợ ma vl lun
