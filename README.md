@@ -9,4 +9,4 @@
 ;> a như con mẹ đó chắc a stress chet quá<br>
 ;> nghèo mà lên mạng kê khai tài sản viết blog tiền trăm triệu tỉ ko thế này<br>
 ;> lên mạng xạo lòn đc an ủi e<br>
-;> ngoài đời mình ăn mình tôm không, chứ post hình lên mạng là phải chèn thêm tôm hùm cua hoàng đế =))
+;> ngoài đời mình ăn mì tôm không, chứ post hình lên mạng là phải chèn thêm tôm hùm cua hoàng đế =))
