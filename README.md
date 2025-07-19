@@ -6,4 +6,7 @@
 ;> đúng là gian sơn dễ đổi mà bản tính con người thì khó đổi<br>
 ;> lên mạng thì nổ tháng làm cả chục triệu tài sản đều huề ấm no chồng con ngon lành ngoài đời thì như giẻ rách<br>
 =)) hôm nào đéo có món thg chồng nó thích là hôm đó mệt<br>
-;> a như con mẹ đó chắc a stress chet quá
+;> a như con mẹ đó chắc a stress chet quá<br>
+;> nghèo mà lên mạng kê khai tài sản viết blog tiền trăm triệu tỉ ko thế này<br>
+;> lên mạng xạo lòn đc an ủi e<br>
+;> ngoài đời mình ăn mình tôm không, chứ post hình lên mạng là phải chèn thêm tôm hùm cua hoàng đế =))
