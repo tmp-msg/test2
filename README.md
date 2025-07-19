@@ -13,4 +13,5 @@
 ;> đâu phải ai mặt xấu đầu bự là bần cùng nghèo đâu chắc chỉ đúng vs con mẹ này<br>
 ;> đầu bự , bằng Ths z chứ học dốt lắm e<br>
 ;> bằng chứng là con bả học rất dở<br>
-;> trường a là bằng trung bình khá gì là cũng học Ths đc ròi e
+;> trường a là bằng trung bình khá gì là cũng học Ths đc ròi e<br>
+;> con bả thi đại học đề dễ mà chưa chắc đc 20 điểm, anh văn test đầu vào rớt lun
