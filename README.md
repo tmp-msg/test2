@@ -10,4 +10,6 @@
 ;> nghèo mà lên mạng kê khai tài sản viết blog tiền trăm triệu tỉ ko thế này<br>
 ;> lên mạng xạo lòn đc an ủi e<br>
 ;> ngoài đời mình ăn mì tôm không, chứ post hình lên mạng là phải chèn thêm tôm hùm cua hoàng đế =))<br>
-;> đâu phải ai mặt xấu đầu bự là bần cùng nghèo đâu chắc chỉ đúng vs con mẹ này
+;> đâu phải ai mặt xấu đầu bự là bần cùng nghèo đâu chắc chỉ đúng vs con mẹ này<br>
+;> đầu bự , bằng Ths z chứ học dốt lắm e<br>
+;> bằng chứng là con bả học rất dở
