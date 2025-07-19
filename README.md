@@ -1,1 +1,1 @@
-;> chắc năm sau mình mới gặp nhau đc á e
+;> thôi e cứ đợi đi,biết đâu có dịp a lên sì gòn mình lại gặp thì sao
