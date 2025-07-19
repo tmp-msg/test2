@@ -7,4 +7,5 @@
 ;> xong e coi có nhìu dấu hiệu giống quá e tưởng e bị bệnh đó <br>
 =)) a lạ gì e<br>
 ;> mấy ng mà làm ở sài gòn cả đời ko nhà là mốt chet sao e<br>
-;> ai cho thờ trong nhà trọ ngta, đem đi thiêu ròi đem lên chùa
+;> ai cho thờ trong nhà trọ ngta, đem đi thiêu ròi đem lên chùa<br>
+;> nhà trọ giá bèo bèo là nhìn vô ô cửa sổ thấy hết nhà, móa nhìn vô thấy hình thờ té cớt liền e
