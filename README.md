@@ -14,4 +14,6 @@
 ;> đầu bự , bằng Ths z chứ học dốt lắm e<br>
 ;> bằng chứng là con bả học rất dở<br>
 ;> trường a là bằng trung bình khá gì là cũng học Ths đc ròi e<br>
-;> con bả thi đại học đề dễ mà chưa chắc đc 20 điểm, anh văn test đầu vào rớt lun
+;> con bả thi đại học đề dễ mà chưa chắc đc 20 điểm, anh văn test đầu vào rớt lun<br>
+;> tức là khi e đậu đh đi thì vô trường sẽ test anh văn tùy thêm số điểm mà cho e vô lớp anh văn 1, anh văn 2 gì đó<br>
+;> còn con bả ko đc anh văn 1 lun =))
