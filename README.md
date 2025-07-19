@@ -18,4 +18,5 @@
 ;> tức là khi e đậu đh đi thì vô trường sẽ test anh văn tùy thêm số điểm mà cho e vô lớp anh văn 1, anh văn 2 gì đó<br>
 ;> còn con bả ko đc anh văn 1 lun =))<br>
 ;> con của mấy người mà học bác sĩ hay giáo sư , phó giáo sư thì chắc học giỏi còn con thạc sĩ thì học dỡ e<br>
-;> a mà có con gái là đéo cho cuối chồng nghèo mà dốt vs lười biếng như con bả đâu
+;> a mà có con gái là đéo cho cuối chồng nghèo mà dốt vs lười biếng như con bả đâu<br>
+;> cha mẹ sao là đẻ con y z à e =))
