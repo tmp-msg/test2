@@ -19,4 +19,7 @@
 ;> còn con bả ko đc anh văn 1 lun =))<br>
 ;> con của mấy người mà học bác sĩ hay giáo sư , phó giáo sư thì chắc học giỏi còn con thạc sĩ thì học dỡ e<br>
 ;> a mà có con gái là đéo cho cuối chồng nghèo mà dốt vs lười biếng như con bả đâu<br>
-;> cha mẹ sao là đẻ con y z à e =))
+;> cha mẹ sao là đẻ con y z à e =))<br>
+;> con bả học dở như cớt z đó mà lên mạng spam con ngta thi 30 điểm đh, ròi đại học thanh hoa qq gì bên trung quốc á e<br>
+=)) bởi sao bả già mà làm lương 5-6 củ suốt ngày lo chuyện xã hội<br>
+;> ý chính ở đâu là mình lo cho mình trước ý e
