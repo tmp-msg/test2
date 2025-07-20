@@ -3,4 +3,5 @@
 ;> e có khiếu vẽ nào giờ a mới biết<br>
 ;> ở chung e chăm a à<br>
 ;> nghĩ tới có vợ, cái vợ chăm quá đã =))<br>
-;> bồ a vẽ tranh đẹp
+;> bồ a vẽ tranh đẹp<br>
+;> a thấy oke thì a chốt đơn sớm thôi e
