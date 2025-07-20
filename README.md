@@ -10,4 +10,6 @@
 =)) 2 năm nữa a kiếm ít tiền là do con mẹ đó bói xà lơ<br>
 ;> bà coi bói đó bả già lắm, coi cho nhìu người chỗ a đúng á<br>
 ;> coi cho chỗ a cũng nhìu năm ròi, lâu lâu ngta thỉnh bả về coi<br>
-;> chứ ko phải dạng lừa đảo xong chim cút đâu
+;> chứ ko phải dạng lừa đảo xong chim cút đâu<br>
+;> e đọc mấy bài báo xàm xàm ko có kiểm chứng đc bài đó bịa hay thực đâu e<br>
+;> 90% là bịa
