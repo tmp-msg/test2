@@ -4,4 +4,5 @@
 ;> ở chung e chăm a à<br>
 ;> nghĩ tới có vợ, cái vợ chăm quá đã =))<br>
 ;> bồ a vẽ tranh đẹp<br>
-;> a thấy oke thì a chốt đơn sớm thôi e
+;> a thấy oke thì a chốt đơn sớm thôi e<br>
+;> ngủ ngon e, bye e
