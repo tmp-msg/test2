@@ -14,4 +14,5 @@
 ;> coi bả học ra cũng thất nghiệp cho xem =))<br>
 ;> mấy bữa trước mắc nợ ko tiền góp lên mạng lấy video của ng khác edit thêm chữ vô xin tiền =))<br>
 ;> tử vi sơ sơ thấy số nghèo mạc nếu giàu thì gần xuống lỗ mới giàu mà giờ nợ ngập đầu<br>
-<img width="1042" height="1008" alt="image" src="https://github.com/user-attachments/assets/3374b2ad-c806-4c81-a154-5b4650fda8e6" />
+<img width="1042" height="1008" alt="image" src="https://github.com/user-attachments/assets/3374b2ad-c806-4c81-a154-5b4650fda8e6" /><br>
+=)) e thấy ai lên mạng xin tiền đéo cho nhe, lừa đảo đó
