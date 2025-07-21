@@ -18,4 +18,5 @@
 =)) e thấy ai lên mạng xin tiền đéo cho nhe, lừa đảo đó<br>
 <img width="1124" height="1113" alt="image" src="https://github.com/user-attachments/assets/9484d642-6af8-4757-a464-2e506ab7b9c3" /><br>
 ;> đi coi bói cái năm cũng như tử vi z e, 2027<br>
-=)) coi z chứ cũng phải cày đả chứ ko là ảo tưởng
+=)) coi z chứ cũng phải cày đả chứ ko là ảo tưởng<br>
+;> nhớ a hem e
