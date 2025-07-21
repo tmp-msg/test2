@@ -21,4 +21,7 @@
 =)) coi z chứ cũng phải cày đả chứ ko là ảo tưởng<br>
 ;> nhớ a hem e<br>
 ;> nhìu ng tâm lý ăn sẵn, thấy xin tiền dễ nên lên mạng lấy video của ng khác vô edit chứ ròi xin tiền<br>
-;> con mẹ đầu quăng này là 1 trong số đó
+;> con mẹ đầu quăng này là 1 trong số đó<br>
+;> ủa hong lẽ ai cũng tuổi canh thân 1980 cũng tiền vận, trung vận vất vả như con mẹ này ta<br>
+;> con mẹ này thì a thấy số khổ vất vả vì tiền, nào là nợ ngập đầu, thu nhập thấp ko có tài sản tích lũy<br>
+;> biết sao a nói con mẹ này quài hem vì a vs nó đéo ưa nhau mà nó thì cứ spam cuộc sống của a
