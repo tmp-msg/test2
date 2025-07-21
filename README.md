@@ -11,4 +11,5 @@
 ;> hơn 40 tuổi còn ko làm tạp vụ đc e<br>
 ;> con mẹ đầu quăng xưa dạy a học đại học nghèo chứ hay ganh tị lắm<br>
 ;> kiểu spam thao túng tâm lý cho a tệ hơn ý<br>
-;> 
+;> coi bả học ra cũng thất nghiệp cho xem =))<br>
+;>
