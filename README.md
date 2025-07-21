@@ -12,4 +12,4 @@
 ;> con mẹ đầu quăng xưa dạy a học đại học nghèo chứ hay ganh tị lắm<br>
 ;> kiểu spam thao túng tâm lý cho a tệ hơn ý<br>
 ;> coi bả học ra cũng thất nghiệp cho xem =))<br>
-;>
+;> mấy bữa trước mắc nợ ko tiền góp lên mạng lấy video của ng khác edit thêm chữ vô xin tiền =))
