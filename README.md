@@ -6,4 +6,6 @@
 ;> a già ròi hong có ham chơi game, ham tiền thôi=))<br>
 ;> trên mạng rác nhìu, thôi chắc a nay ngủ sớm thôi e<br>
 <img width="541" height="592" alt="image" src="https://github.com/user-attachments/assets/a1a52966-a2af-462a-9dce-85395e4f4244" /><br>
-;> đọc CV nghe mùi xạo lòn e
+;> đọc CV nghe mùi xạo lòn e<br>
+<img width="966" height="651" alt="image" src="https://github.com/user-attachments/assets/a5eb2319-9126-47a0-81b4-f8f279362ac2" /><br>
+;> hơn 40 tuổi còn ko làm tạp vụ đc e
