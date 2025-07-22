@@ -25,4 +25,6 @@
 ;> bù lại thì a sẽ thấy thương người vợ chu toàn cho e sẽ trả bài nhìu hơn<br>
 ;> đi đâu thấy gì ngon là mua về cho e ăn<br>
 ;> sao con đàn bà yến đầu xoăn nghèo mạc nợ ngập đầu mà hay lo chuyện xã hội quá<br>
-;> như e thấy a có lo chuyện xã hội ko
+;> như e thấy a có lo chuyện xã hội ko<br>
+![Uploading image.png…]()<br>
+CV kỹ sư AI năm 2014 nè e
