@@ -11,4 +11,5 @@ CV kỹ sư AI năm 2014 nè e<br>
 ;> sau này e có việc kinh doanh gì thì để a phụ<br>
 ;> con đàn bà đầu xoăn kia trù e phá sản kìa<br>
 ;> mấy bà ở quê a nói chuyện to lắm, cách mấy căn nhà con nghe á<br>
-;> chứ ko phải nói vừa đủ nghe đâu e
+;> chứ ko phải nói vừa đủ nghe đâu e<br>
+;> ngủ ngon e, bye e
