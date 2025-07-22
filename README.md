@@ -22,4 +22,5 @@
 ;> đòi thành thục ngoại ngữ =))<br>
 ;> vừa giỏi chuyên môn vừa giỏi ngoại ngữ thì phải học nhìu<br>
 ;> e làm ô sinh chăm cho a lúc bệnh như mua thuốc, cơm nước, lau người cho a<br>
-;> 
+;> bù lại thì a sẽ thấy thương người vợ chu toàn cho e sẽ trả bài nhìu hơn<br>
+;> đi đâu thấy gì ngon là mua về cho e ăn
