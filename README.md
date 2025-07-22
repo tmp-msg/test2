@@ -6,4 +6,6 @@
 ;> nào tối e thấy a ít nhắn quá là nhìu khi a đi làm ròi nhe<br>
 <img width="981" height="353" alt="image" src="https://github.com/user-attachments/assets/d27051b0-27cb-44f4-bb2c-50b1f2ac1863" /><br>
 ;> con này lừa đảo nè e<br>
-;> ng mà lúc mà nghèo thì chê bai lúc giàu thì đưa lên đỉnh everest cơ bản a thấy ko có sài đc
+;> ng mà lúc mà nghèo thì chê bai lúc giàu thì đưa lên đỉnh everest cơ bản a thấy ko có sài đc<br>
+;> tạp vụ mà lương vl thật e<br>
+<img width="1473" height="1045" alt="image" src="https://github.com/user-attachments/assets/b389b1ba-5b03-40a7-a73d-ffab5fa629de" />
