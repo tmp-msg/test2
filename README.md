@@ -1,5 +1,6 @@
 ;> a cảm gòi e<br>
 ;> ship cho a 2 liều thuốc e<br>
 ;> chiều a mới pv 1 cty thấy ko có hợp lắm, xử lý ảnh AI python thôi e<br>
-;> cty làm backend .net vs nodeJS là chính, mà ghi tuyển nào là java,php,nodeJS,...<br>
-;> vl thật, xa quá nữa
+;> cty làm backend .net vs nodeJS là chính, mà ghi tuyển nào là java,php,nodeJS,python...<br>
+;> vl thật, xa quá nữa<br>
+;> nào tối e thấy a ít nhắn quá là nhìu khi a đi làm ròi nhe
