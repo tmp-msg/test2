@@ -13,3 +13,4 @@
 ;> con mẹ đó nuôi 1 thg ăn học đại học mà ngáp ngáp ròi<br>
 ;> mốt chi phí học đại học nó đội lên nữa, chắc cho làm công nhân<br>
 ;> e nữa làm vợ a, a cho phép e ngủ chung a<br>
+;> cho phép e làm ô sinh cho a =))
