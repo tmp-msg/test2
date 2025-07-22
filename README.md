@@ -8,4 +8,5 @@ CV kỹ sư AI năm 2014 nè e<br>
 ;> add zalo a đi nào a cho địa chỉ đi hẹn hò<br>
 ;> đi quán nào ở long an, tân an thôi tùy e lựa<br>
 ;> về già a mún về quê e sống, nhà a thì sống chèo nèo họ hàng, ồn ào lắm<br>
-;> sau này e có việc kinh doanh gì thì để a phụ
+;> sau này e có việc kinh doanh gì thì để a phụ<br>
+;> con đàn bà đầu xoăn kia trù e phá sản kìa
