@@ -11,4 +11,5 @@
 <img width="1473" height="1045" alt="image" src="https://github.com/user-attachments/assets/b389b1ba-5b03-40a7-a73d-ffab5fa629de" /><br>
 ;> con mẹ già đầu xoăn chung vô làm hợp, mặt phải đi đôi vs nghề<br>
 ;> con mẹ đó nuôi 1 thg ăn học đại học mà ngáp ngáp ròi<br>
-;> mốt chi phí học đại học nó đội lên nữa, chắc cho làm công nhân
+;> mốt chi phí học đại học nó đội lên nữa, chắc cho làm công nhân<br>
+;> e nữa làm vợ a, a cho phép e ngủ chung a<br>
