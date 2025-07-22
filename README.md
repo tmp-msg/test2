@@ -15,4 +15,5 @@
 ;> e nữa làm vợ a, a cho phép e ngủ chung a<br>
 ;> cho phép e làm ô sinh cho a =))<br>
 ;> có mấy cty thấy phù hợp vs a mà đòi thành thục tiếng anh <br>
-;> tuyển tới mùa quýt lun e
+;> tuyển tới mùa quýt lun e<br>
+;> uống 1 liều thuốc thấy đỡ đỡ ròi e, bớt nhức đầu
