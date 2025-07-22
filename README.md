@@ -19,4 +19,7 @@
 ;> uống 1 liều thuốc thấy đỡ đỡ ròi e, bớt nhức đầu<br>
 <img width="1093" height="246" alt="image" src="https://github.com/user-attachments/assets/ce24309c-76a6-4b40-bbc4-721b56b11478" /><br>
 ;> cty này a thấy tuyển mấy tháng ròi e<br>
-;> đòi thành thục ngoại ngữ =))
+;> đòi thành thục ngoại ngữ =))<br>
+;> vừa giỏi chuyên môn vừa giỏi ngoại ngữ thì phải học nhìu<br>
+;> e làm ô sinh chăm cho a lúc bệnh như mua thuốc, cơm nước, lau người cho a<br>
+;> 
