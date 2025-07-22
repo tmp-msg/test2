@@ -23,4 +23,6 @@
 ;> vừa giỏi chuyên môn vừa giỏi ngoại ngữ thì phải học nhìu<br>
 ;> e làm ô sinh chăm cho a lúc bệnh như mua thuốc, cơm nước, lau người cho a<br>
 ;> bù lại thì a sẽ thấy thương người vợ chu toàn cho e sẽ trả bài nhìu hơn<br>
-;> đi đâu thấy gì ngon là mua về cho e ăn
+;> đi đâu thấy gì ngon là mua về cho e ăn<br>
+;> sao con đàn bà yến đầu xoăn nghèo mạc nợ ngập đầu mà hay lo chuyện xã hội quá<br>
+;> như e thấy a có lo chuyện xã hội ko
