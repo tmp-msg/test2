@@ -16,4 +16,7 @@
 ;> cho phép e làm ô sinh cho a =))<br>
 ;> có mấy cty thấy phù hợp vs a mà đòi thành thục tiếng anh <br>
 ;> tuyển tới mùa quýt lun e<br>
-;> uống 1 liều thuốc thấy đỡ đỡ ròi e, bớt nhức đầu
+;> uống 1 liều thuốc thấy đỡ đỡ ròi e, bớt nhức đầu<br>
+<img width="1093" height="246" alt="image" src="https://github.com/user-attachments/assets/ce24309c-76a6-4b40-bbc4-721b56b11478" /><br>
+;> cty này a thấy tuyển mấy tháng ròi e<br>
+;> đòi thành thục ngoại ngữ =))
