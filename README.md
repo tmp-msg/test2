@@ -1,4 +1,6 @@
 ;> <img width="1431" height="1111" alt="image" src="https://github.com/user-attachments/assets/fb196cad-3b9e-43d8-b551-45d69fd2581a" /><br>
 ;> hợp vs a mà tận đồng nai <br>
 ;> lương cao e<br>
-;> 12-25 củ vl thật
+;> 12-25 củ vl thật<br>
+<img width="1015" height="1094" alt="image" src="https://github.com/user-attachments/assets/4ff4d16f-95d2-4258-9c57-3e6e430dea91" /><br>
+;> đứa nào tạo nick fb spam ảo tưởng nè e
