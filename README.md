@@ -5,4 +5,5 @@
 ;> tuần làm có 5 ngày, ko biết OT nhìu ko<br>
 ;> cho a ở nhà e thì a apply<br>
 ;> trưa ăn cơm chưa có no chắc ăn cóc nhìu bị đau bụng thôi e<br>
-;> cty cũ hình như là đuổi cái a làm chung a ròi thấy a đó xóa source dự án
+;> cty cũ hình như là đuổi cái a làm chung a ròi thấy a đó xóa source dự án<br>
+;> ngủ ngon e, bye e
