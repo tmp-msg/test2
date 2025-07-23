@@ -2,4 +2,5 @@
 ;> a gầy nhìn mặt a vừa hơn ăn nhìu xíu thì mặt hơi tròn<br>
 ;> thỉnh thoảng đau bụng từ lúc ăn trái cóc ròi e<br>
 ;> cty bên đồng nai đó hợp vs a á, có đểu chỗ đó đi làm hơi sớm 7:30<br>
+;> tuần làm có 5 ngày, ko biết OT nhìu ko<br>
 ;> cho a ở nhà e thì a apply
