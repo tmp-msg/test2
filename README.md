@@ -8,4 +8,6 @@
 ;> cho a ở chung a đi làm coi<br>
 ;> chơi vs mấy đứa ở ghép, nhà sài gòn khó xin nó ở chung lắm, ròi nó hỏi chuyện mắc công<br>
 ;> cho ở chung hem, quen gần 2 năm ròi<br>
-;> quen lâu thì ở chung là vừa e, a phụ e nấu ăn làm việc nhà
+;> quen lâu thì ở chung là vừa e, a phụ e nấu ăn làm việc nhà<br>
+;> nhắn hỏi bạn cho ở nhà kiểu gì nó cũng hô "m mất việc hay nhảy việc nữa ròi hả"<br>
+;> nó ở ghép vs ng khác xin ở chung khó
