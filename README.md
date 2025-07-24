@@ -4,4 +4,5 @@
 ;> a ở chung e đi<br>
 ;> mướn trọ ở thủ đức là chạy qua lòi lòn, chứ a cũng hết mịa tiền =))<br>
 ;> ở chung e thì mượn cái nhà e ở cuối tháng a đóng tiền<br>
-;> a bùn quá
+;> a bùn quá<br>
+;> cho a ở chung a đi làm coi
