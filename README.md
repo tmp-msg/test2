@@ -10,4 +10,5 @@
 ;> cho ở chung hem, quen gần 2 năm ròi<br>
 ;> quen lâu thì ở chung là vừa e, a phụ e nấu ăn làm việc nhà<br>
 ;> nhắn hỏi bạn cho ở nhà kiểu gì nó cũng hô "m mất việc hay nhảy việc nữa ròi hả"<br>
-;> nó ở ghép vs ng khác xin ở chung khó
+;> nó ở ghép vs ng khác xin ở chung khó<br>
+;> nhắn a cái địa chỉ đi e
