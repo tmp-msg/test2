@@ -2,4 +2,5 @@
 ;> éo biết mai họ có gọi lại ko<br>
 ;> trọ chỗ e rẻ, làm lương 1x củ chắc dư nhìu<br>
 ;> a ở chung e đi<br>
-;> mướn trọ ở thủ đức là chạy qua lòi lòn, chứ a cũng hết mịa tiền =))
+;> mướn trọ ở thủ đức là chạy qua lòi lòn, chứ a cũng hết mịa tiền =))<br>
+;> ở chung e thì mượn cái nhà e ở cuối tháng a đóng tiền
