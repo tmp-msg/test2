@@ -7,4 +7,5 @@
 ;> a bùn quá<br>
 ;> cho a ở chung a đi làm coi<br>
 ;> chơi vs mấy đứa ở ghép, nhà sài gòn khó xin nó ở chung lắm, ròi nó hỏi chuyện mắc công<br>
-;> cho ở chung hem, quen gần 2 năm ròi
+;> cho ở chung hem, quen gần 2 năm ròi<br>
+;> quen lâu thì ở chung là vừa e, a phụ e nấu ăn làm việc nhà
