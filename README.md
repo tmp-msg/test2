@@ -6,4 +6,5 @@
 ;> ở chung e thì mượn cái nhà e ở cuối tháng a đóng tiền<br>
 ;> a bùn quá<br>
 ;> cho a ở chung a đi làm coi<br>
-;> chơi vs mấy đứa ở ghép nhà sài gòn khó xin nó ở chung lắm, ròi nó hỏi chuyện mắc công
+;> chơi vs mấy đứa ở ghép, nhà sài gòn khó xin nó ở chung lắm, ròi nó hỏi chuyện mắc công<br>
+;> cho ở chung hem, quen gần 2 năm ròi
