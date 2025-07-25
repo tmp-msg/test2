@@ -7,4 +7,5 @@
 ;> a uống đá là hay bị cảm à e, mà lại thích uống đá<br>
 ;> thấy ai dạy đời soi nick nó coi real ko, coi chừng tạo nick clone của ng khác cũng quá cha e<br>
 ;> giờ làm thuê lương 5 củ mà dạy đời làm giàu, kinh doanh đồ ko à e, đúng là lên mạng thì thỏa sức xạo lòn cho sướng miệng thật<br>
-;> ngủ ngon nhe e khuya gòi
+;> ngủ ngon nhe e khuya gòi<br>
+;> 1 tháng mà kiếm 100-200 củ là đủ mua nhà e 
