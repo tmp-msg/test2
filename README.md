@@ -6,4 +6,6 @@
 ;> rảnh e làm gì e<br>
 ;> già đầu tính nào tật đó à e<br>
 ;> bản thân nghèo cả đời nên mún kéo ngta giống mình để an ủi bản thân đó e hỉu hem<br>
-;> mấy nay học đc mấy món ròi e, a thích ăn canh chua nữa
+;> mấy nay học đc mấy món ròi e, a thích ăn canh chua nữa<br>
+;> canh chua cá hú, cá bóp,...<br>
+;>
