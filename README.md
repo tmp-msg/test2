@@ -5,4 +5,5 @@
 ;> dưới long an bán ốc dở hong tươi đâu e<br>
 ;> mua cây chanh về trồng đi e, nửa a lấy lá làm mấy món ốc ăn<br>
 ;> a thích ăn ốc<br>
-;> chanh mình nha e, mua sẵn 1-2 cây về trồng, chanh lùn lùn thôi e
+;> chanh mình nha e, mua sẵn 1-2 cây về trồng, chanh lùn lùn thôi e<br>
+;> trồng lần đi 1-2 năm nửa ở chung có lá chanh hấp ốc ăn
