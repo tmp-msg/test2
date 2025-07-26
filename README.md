@@ -8,4 +8,4 @@
 ;> bản thân nghèo cả đời nên mún kéo ngta giống mình để an ủi bản thân đó e hỉu hem<br>
 ;> mấy nay học đc mấy món ròi e, a thích ăn canh chua nữa<br>
 ;> canh chua cá hú, cá bóp,...<br>
-;>
+;> biết nhà a hay ăn canh chua vs gì hem, thay vì nước mắm ớt thì nhà a ăn muối ớt
