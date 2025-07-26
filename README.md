@@ -1,3 +1,6 @@
 ;> a nhô e<br>
 ;> nay rảnh có chạy xuống long an ko e<br>
-;> con mẹ lòn đầu quăng 46 tuổi nghèo lương 5 củ nợ ngập đầu mà dạy đời trồi lên a thấy quài z ta
+;> con mẹ lòn đầu quăng 46 tuổi nghèo lương 5 củ nợ ngập đầu mà dạy đời trồi lên a thấy quài z ta<br>
+;> kiểu như ngoài đời, thực tế nghèo ko bằng ai cảm thấy tự ti, lên mạng dạy làm giàu để chửa lành<br>
+;> nào là dấu hiệu người ngu, người khôn, người nghèo, thông minh, cách tiết kiệm tiền,...=))<br>
+;> rảnh e làm gì e
