@@ -7,4 +7,5 @@
 ;> a thích ăn ốc<br>
 ;> chanh mình nha e, mua sẵn 1-2 cây về trồng, chanh lùn lùn thôi e<br>
 ;> trồng lần đi 1-2 năm nửa ở chung có lá chanh hấp ốc ăn<br>
-;> e hỉu từ khí chất là sao hem e, a éo hiểu
+;> e hỉu từ khí chất là sao hem e, a éo hiểu<br>
+;> giờ ăn cắp video nước ngoài ròi xài giọng ảo dể dạy đời nữa e, mốt xài AI để dạy đời lun
