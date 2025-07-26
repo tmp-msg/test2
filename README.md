@@ -6,4 +6,5 @@
 ;> mua cây chanh về trồng đi e, nửa a lấy lá làm mấy món ốc ăn<br>
 ;> a thích ăn ốc<br>
 ;> chanh mình nha e, mua sẵn 1-2 cây về trồng, chanh lùn lùn thôi e<br>
-;> trồng lần đi 1-2 năm nửa ở chung có lá chanh hấp ốc ăn
+;> trồng lần đi 1-2 năm nửa ở chung có lá chanh hấp ốc ăn<br>
+;> e hỉu từ khí chất là sao hem e, a éo hiểu
