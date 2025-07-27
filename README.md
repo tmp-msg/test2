@@ -5,4 +5,6 @@
 ;> nghèo nên hay ganh tị<br>
 ;> nghèo mà tính ganh tị tốt nhất là kiếm nghèo chơi<br>
 ;> bà này ngoài đời có 1m5 à<br>
-;> người ngắn chân lùn
+;> người ngắn chân lùn<br>
+;> chắc đang túng tiền nên stress e<br>
+;> mua chanh trồng chưa e
