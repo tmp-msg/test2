@@ -20,4 +20,6 @@
 ;> nay con lòn già vs thg chồng nó quýnh lộn hay cãi lộn gì á<br>
 ;> nồi nào vung nấy mà cãi ít bữa lại về bên nhau =))<br>
 ;> về bên nhau ta nối lại tình xưa nuôi 2 thg đực nữa =))<br>
-;> nó có phải là con vợ tốt lành gì đâu e nên gặp thg chồng như z
+;> nó có phải là con vợ tốt lành gì đâu e nên gặp thg chồng như z<br>
+;> nay nó bị chồng chửi =)), chắc lên mạng ảo tưởng ròi đòi hỏi, thg chồng nó chửi =))<br>
+;> ít bữa cũng nối lại tình xưa, sống vs nhau tới xuống lỗ chứ gì e
