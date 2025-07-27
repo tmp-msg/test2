@@ -8,4 +8,4 @@
 ;> còn con đàn bà đầu xoăn này đến tuổi cưới chồng thì nó cưới thôi, 26 tuổi nó có chồng, con ròi e<br>
 ;> mấy thg đàn ông mún lấy vợ 1 là có nhà có xe 2 là có chí, tài, tiềm năng gì gì đó...<br>
 ;> ko là ế vợ cưới vợ châu phi<br>
-;> 
+;> nó vay app bị đòi tiền e
