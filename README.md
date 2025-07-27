@@ -15,4 +15,5 @@
 ;> kiểu bản thân thì nghèo quá mà soi ngta giàu => ganh tị + ko làm gì đc => buông bỏ<br>
 ;> a học nghành tâm lý mới đúng<br>
 ;> nào add zalo đi ròi hẹn hò vs a<br>
-;> hẹn hò vs a, a có tiền thì ăn cháo ếch, lẩu cá, ốc,... a nghèo thì ăn hủ tiếu gõ =))
+;> hẹn hò vs a, a có tiền thì ăn cháo ếch, lẩu cá, ốc, gả nướng... a nghèo thì ăn hủ tiếu gõ =))<br>
+;> hem biết e có đam mê ăn uống như a hem
