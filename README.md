@@ -9,4 +9,4 @@
 ;> chắc đang túng tiền nên stress e<br>
 ;> mua chanh trồng chưa e<br>
 ;> chồng bà đầu xoăn này làm biếng mà , chắc vợ chồng nó cãi vã, túng tiền ấy mà, ngta nói nồi nào vung nấy mà e<br>
-=)) rần rần ít bữa cũng nhào lại như cũ mà
+=)) rần rần ít bữa cũng nhào lại như cũ mà<br>
