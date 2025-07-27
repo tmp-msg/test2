@@ -9,4 +9,5 @@
 ;> mấy thg đàn ông mún lấy vợ 1 là có nhà có xe 2 là có chí, tài, tiềm năng gì gì đó...<br>
 ;> ko là ế vợ cưới vợ châu phi<br>
 ;> nó vay app bị đòi tiền e<br>
-;> vay nhìu app quá hết app này tới app kia đòi thôi e
+;> vay nhìu app quá hết app này tới app kia đòi thôi e<br>
+;> ngủ ngon nhe e, nào ngủ cung cho a bóp dú cái =))
