@@ -13,4 +13,5 @@
 ;> a giàu lên là con quỷ cái này hết làm phiền à e<br>
 ;> giàu kiểu bền vững nó ko làm gì đc là nó lết lồn nó đi à e<br>
 ;> kiểu bản thân thì nghèo quá mà soi ngta giàu => ganh tị + ko làm gì đc => buông bỏ<br>
-;> a học nghànht âm lý mới đúng
+;> a học nghành tâm lý mới đúng<br>
+;> nào add zalo đi ròi hẹn hò vs a
