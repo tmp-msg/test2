@@ -18,4 +18,6 @@
 ;> hẹn hò vs a, a có tiền thì ăn cháo ếch, lẩu cá, ốc, gả nướng... a nghèo thì ăn hủ tiếu gõ =))<br>
 ;> hem biết e có đam mê ăn uống như a hem<br>
 ;> nay con lòn già vs thg chồng nó quýnh lộn hay cãi lộn gì á<br>
-;> nồi nào vung nấy mà cãi ít bữa lại về bên nhau =))
+;> nồi nào vung nấy mà cãi ít bữa lại về bên nhau =))<br>
+;> về bên nhau ta nối lại tình xưa nuôi 2 thg đực nữa =))<br>
+;> nó có phải là con vợ tốt lành gì đâu e nên gặp thg chồng như z
