@@ -24,4 +24,6 @@
 ;> nay nó bị chồng chửi =)), chắc lên mạng ảo tưởng ròi đòi hỏi, thg chồng nó chửi =))<br>
 ;> ít bữa cũng nối lại tình xưa, sống vs nhau tới xuống lỗ chứ gì e<br>
 ;> đảm bảo 100% lun e<br>
-;> con gái giờ thà ế chứ đâu quen người khác vì đến tuổi lập gia đình
+;> con gái giờ thà ế chứ đâu quen người khác vì đến tuổi lập gia đình<br>
+;> thành ra giờ ai quen gái là phải tốt =))<br>
+;> còn con đàn bà đầu xoăn này đến tuổi cưới chồng thì nó cưới thôi, 26 tuổi nó có chồng, con ròi e
