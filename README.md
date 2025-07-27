@@ -12,4 +12,5 @@
 =)) rần rần ít bữa cũng nhào lại như cũ mà<br>
 ;> a giàu lên là con quỷ cái này hết làm phiền à e<br>
 ;> giàu kiểu bền vững nó ko làm gì đc là nó lết lồn nó đi à e<br>
-;> kiểu bản thân thì nghèo quá mà soi ngta giàu => ganh tị + ko làm gì đc => buông bỏ
+;> kiểu bản thân thì nghèo quá mà soi ngta giàu => ganh tị + ko làm gì đc => buông bỏ<br>
+;> a học nghànht âm lý mới đúng
