@@ -7,4 +7,6 @@
 ;> bà này ngoài đời có 1m5 à<br>
 ;> người ngắn chân lùn<br>
 ;> chắc đang túng tiền nên stress e<br>
-;> mua chanh trồng chưa e
+;> mua chanh trồng chưa e<br>
+;> chồng bà đầu xoăn này làm biếng mà , chắc vợ chồng nó cãi vã, túng tiền ấy mà, ngta nói nồi nào vung nấy mà e<br>
+=)) rần rần ít bữa cũng nhào lại như cũ mà
