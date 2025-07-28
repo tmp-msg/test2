@@ -11,4 +11,6 @@
 ;> tự dưng bà lòn nào hay phá mình xin tiền cho cl<br>
 ;> mấy đứa mà thấy ai có tiền của, xe sang, nhà rộng thu nhập cao mà nhào vô mún làm bồ ny, tỏ ra thích <br>
 ;> biết mấy đứa nhào vô đó thích gì ko e<br>
-;> thật ra thì nó chỉ thích tiền bạc, tài sản của ngta thôi
+;> thật ra thì nó chỉ thích tiền bạc, tài sản của ngta thôi<br>
+=)) giờ con nhỏ đó hô có SH mới iu ko thì ctay đố e nhỏ đó thật ra thích gì?<br>
+=)) nó ko thích thg đó mà nó thích chiếc SH z thôi
