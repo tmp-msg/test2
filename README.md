@@ -13,4 +13,6 @@
 ;> biết mấy đứa nhào vô đó thích gì ko e<br>
 ;> thật ra thì nó chỉ thích tiền bạc, tài sản của ngta thôi<br>
 =)) giờ con nhỏ đó hô có SH mới iu ko thì ctay đố e nhỏ đó thật ra thích gì?<br>
-=)) nó ko thích thg đó mà nó thích chiếc SH z thôi
+=)) nó ko thích thg đó mà nó thích chiếc SH z thôi<br>
+;> con lòn già này thao túng a đi làm xa để đỡ ganh tị<br>
+;> a thích ở việt nam hơn
