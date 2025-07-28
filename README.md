@@ -15,4 +15,5 @@
 =)) giờ con nhỏ đó hô có SH mới iu ko thì ctay đố e nhỏ đó thật ra thích gì?<br>
 =)) nó ko thích thg đó mà nó thích chiếc SH z thôi<br>
 ;> con lòn già này thao túng a đi làm xa để đỡ ganh tị<br>
-;> a thích ở việt nam hơn
+;> a thích ở việt nam hơn<br>
+;> làm người thì nên bỏ cái tính ích kỉ, ganh tị đi lồn già
