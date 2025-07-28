@@ -6,4 +6,5 @@
 ;> bùn nhất khi a giàu, thành công<br>
 ;> ganh tị đó e hỉu hem<br>
 ;> tự dưng giờ con đầu xoăn 46 tuổi spam xưng anh em thất tình =))<br>
-;> a là ghét người có tính cách như nó
+;> a là ghét người có tính cách như nó<br>
+;> có tiền a cũng đéo cho nó đồng nào đâu, loại ham tiền ưa sĩ diện thích bá vô ng khác
