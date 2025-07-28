@@ -16,4 +16,6 @@
 =)) nó ko thích thg đó mà nó thích chiếc SH z thôi<br>
 ;> con lòn già này thao túng a đi làm xa để đỡ ganh tị<br>
 ;> a thích ở việt nam hơn<br>
-;> làm người thì nên bỏ cái tính ích kỉ, ganh tị đi lồn già
+;> làm người thì nên bỏ cái tính ích kỉ, ganh tị đi lồn già<br>
+;> github này con lồn già soi nữa mà e ngày xưa a kêu nó bằng yến giò heo =))<br>
+;>
