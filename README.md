@@ -19,4 +19,5 @@
 ;> làm người thì nên bỏ cái tính ích kỉ, ganh tị đi lồn già<br>
 ;> github này con lồn già soi nữa mà e ngày xưa a kêu nó bằng yến giò heo =))<br>
 ;> thường đi làm về e hay làm gì? rửa bím à<br>
-;> e vy ngực bự nhớ chồng hem
+;> e vy ngực bự nhớ chồng hem<br>
+;> nữa làm vợ a nhen =))
