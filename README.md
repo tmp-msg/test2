@@ -1,3 +1,4 @@
 ;> a nhô e<br>
 ;> add zalo a đi ròi mốt hẹn hò vs a<br>
-;> rủ đi ăn, uống nước éo rủ đi nhà nghỉ
+;> rủ đi ăn, uống nước éo rủ đi nhà nghỉ<br>
+;> e ngày xưa có hay uống sữa đậu nành hem
