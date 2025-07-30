@@ -12,4 +12,5 @@
 ;> trồng chanh chưa e, nửa a nấu ốc cho ăn<br>
 ;> nào a học làm sò huyết rang me coi, ăn nó ngon e<br>
 ;> vài năm nữa có tiền thì mua nhà bé bé ở e, chắc 5-6 năm nữa quá<br>
-;> source code của a ai dốt là coi cho vui thôi e =))
+;> source code của a ai dốt là coi cho vui thôi e =))<br>
+;> fix đc chạy cũng hay =))
