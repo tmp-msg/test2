@@ -14,4 +14,5 @@
 ;> vài năm nữa có tiền thì mua nhà bé bé ở e, chắc 5-6 năm nữa quá<br>
 ;> source code của a ai dốt là coi cho vui thôi e =))<br>
 ;> fix đc chạy cũng hay =))<br>
-=)) fix xong ẻ lun e
+=)) fix xong ẻ lun e<br>
+;> máy a chạy bth
