@@ -8,4 +8,5 @@
 ;> nay a ăn cá rô chiên e<br>
 ;> mấy nay chem chép khô hay ướt e<br>
 ;> a quá khôn để đầu độc tư tưởng<br>
-;> con người có cái đầu sao ngu đc e
+;> con người có cái đầu sao ngu đc e<br>
+;> trồng chanh chưa e, nửa a nấu ốc cho ăn
