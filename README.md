@@ -9,4 +9,5 @@
 ;> mấy nay chem chép khô hay ướt e<br>
 ;> a quá khôn để đầu độc tư tưởng<br>
 ;> con người có cái đầu sao ngu đc e<br>
-;> trồng chanh chưa e, nửa a nấu ốc cho ăn
+;> trồng chanh chưa e, nửa a nấu ốc cho ăn<br>
+;> nào a học làm sò huyết rang me coi, ăn nó ngon e
