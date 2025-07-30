@@ -10,4 +10,5 @@
 ;> a quá khôn để đầu độc tư tưởng<br>
 ;> con người có cái đầu sao ngu đc e<br>
 ;> trồng chanh chưa e, nửa a nấu ốc cho ăn<br>
-;> nào a học làm sò huyết rang me coi, ăn nó ngon e
+;> nào a học làm sò huyết rang me coi, ăn nó ngon e<br>
+;> vài năm nữa có tiền thì mua nhà bé bé ở e, chắc 5-6 năm nữa quá
