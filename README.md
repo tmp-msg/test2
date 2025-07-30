@@ -6,3 +6,4 @@
 ;> già ròi tính éo sửa đc<br>
 ;> ngoài đời khổ quá phải biết ảo tưởng làm khùng làm điên xíu<br>
 ;> nay a ăn cá rô chiên e<br>
+;> mấy nay chem chép khô hay ướt e
