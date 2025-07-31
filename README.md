@@ -7,3 +7,4 @@
 ;> ông này mới 56 tuổi ngủm ròi e<br>
 ;> 1 đời người sống 70 năm là ổn e, a chỉ ước làm có nhìu tiền ròi hưởng thụ tới lúc ngủm thôi<br>
 ;> chứ 50 tuổi giàu xong sống đc vài năm nữa tèo cũng hơi chán<br>
+;> làm bồ a thì a thì phải ngoan, a mới quen quài đc hiểu hem, chứ múa lân múa lửa là a ko thích
