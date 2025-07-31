@@ -5,3 +5,4 @@
 ;> lâu gặp e quá a cũng suýt quên mặt e như nào rồi<br>
 ;> <img width="985" height="638" alt="image" src="https://github.com/user-attachments/assets/f93014ca-0cdc-4c9d-82c8-a6d73396fb0c" /><br>
 ;> ông này mới 56 tuổi ngủm ròi e<br>
+;> 1 đời người sống 70 năm là ổn e, a chỉ ước làm có nhìu tiền ròi hưởng thụ tới lúc ngủm thôi
