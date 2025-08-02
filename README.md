@@ -7,4 +7,5 @@
 ;> e mún ở vs a bao lâu nữa e<br>
 ;> nào xuống lỗ thì thôi à e<br>
 <img width="941" height="979" alt="image" src="https://github.com/user-attachments/assets/149e68a4-b9c9-4254-bdd7-1a970e130c91" /><br>
-;> nghe mùi xạo lòn e
+;> nghe mùi xạo lòn e<br>
+;> a nhớ e quá 
