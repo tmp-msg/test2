@@ -11,4 +11,6 @@
 ;> a nhớ e quá <br>
 <img width="1014" height="1018" alt="image" src="https://github.com/user-attachments/assets/65e74ecd-bf29-446e-960b-55c5c0c9a646" /><br>
 ;> a hong làm cho e đâu<br>
-;> móa từ lúc mà gửi laptop đi siêu thị mua đồ là lap hay bị hư e
+;> móa từ lúc mà gửi laptop đi siêu thị mua đồ là lap hay bị hư e<br>
+;> a làm công ăn lương thu nhập bth thì sao e<br>
+;> nhỏ e họ a làm ngân hàng ngày 10-12 tiếng đủ ăn đéo dư<br>
