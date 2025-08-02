@@ -16,4 +16,6 @@
 ;> nhỏ e họ a làm ngân hàng ngày 10-12 tiếng đủ ăn đéo dư<br>
 ;> nhưng mà nhà nó giàu =))<br>
 ;> e ko ưng gì a thì ctay thôi e<br>
-;> chiều a ghé mua nửa con gà nướng ăn cũng ngon e
+;> chiều a ghé mua nửa con gà nướng ăn cũng ngon e<br>
+;> a vô cái group freelance của 1 cty thôi mà cả ngàn người e<br>
+;> 
