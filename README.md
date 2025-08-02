@@ -22,4 +22,5 @@
 ;> coi chỗ khác ngon hơn ko<br>
 <img width="828" height="922" alt="image" src="https://github.com/user-attachments/assets/625c3765-13f8-43e5-aaea-a9dd1c9dc628" /><br>
 ;> e khoái đẻ lắm vô đây thẩm<br>
-;> a ko giống thg cha đó mà a giống con mẹ đó =))
+;> a ko giống thg cha đó mà a giống con mẹ đó =))<br>
+;> e mún đẻ là phụ thôi, e mún đụ vs a là chính
