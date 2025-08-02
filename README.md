@@ -3,4 +3,6 @@
 ;> đi về mệt ngủ thôi e<br>
 ;> nhớ a hem mà chạy te te đi đâu z<br>
 ;> nhớ a hem e<br>
-;> nào cà phê vs a hem
+;> nào cà phê vs a hem<br>
+;> e mún ở vs a bao lâu nữa e<br>
+;> nào xuống lỗ thì thôi à e
