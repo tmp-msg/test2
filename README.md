@@ -14,3 +14,5 @@
 ;> móa từ lúc mà gửi laptop đi siêu thị mua đồ là lap hay bị hư e<br>
 ;> a làm công ăn lương thu nhập bth thì sao e<br>
 ;> nhỏ e họ a làm ngân hàng ngày 10-12 tiếng đủ ăn đéo dư<br>
+;> nhưng mà nhà nó giàu =))<br>
+;> e ko ưng gì a thì ctay thôi e
