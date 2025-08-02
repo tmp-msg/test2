@@ -18,4 +18,5 @@
 ;> e ko ưng gì a thì ctay thôi e<br>
 ;> chiều a ghé mua nửa con gà nướng ăn cũng ngon e<br>
 ;> a vô cái group freelance của 1 cty thôi mà cả ngàn người e<br>
-;> 
+;> chiều a mua nửa con gà nướng pleaku ơi gì đó ở tân bình, thấy cũng ngon mà thôi mốt mua chỗ khác =))<br>
+;> coi chỗ khác ngon hơn ko
