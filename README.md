@@ -24,4 +24,5 @@
 ;> e khoái đẻ lắm vô đây thẩm<br>
 ;> a ko giống thg cha đó mà a giống con mẹ đó =))<br>
 ;> e mún đẻ là phụ thôi, e mún đụ vs a là chính<br>
-;> sao chiều e ko gặp a thêm xíu nữa
+;> sao chiều e ko gặp a thêm xíu nữa<br>
+;> sang năm sau ổn định thì a cho địa chỉ mình hẹn hò nhé
