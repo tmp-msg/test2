@@ -5,4 +5,6 @@
 ;> nhớ a hem e<br>
 ;> nào cà phê vs a hem<br>
 ;> e mún ở vs a bao lâu nữa e<br>
-;> nào xuống lỗ thì thôi à e
+;> nào xuống lỗ thì thôi à e<br>
+<img width="941" height="979" alt="image" src="https://github.com/user-attachments/assets/149e68a4-b9c9-4254-bdd7-1a970e130c91" /><br>
+;> nghe mùi xạo lòn e
