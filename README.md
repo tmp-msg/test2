@@ -1,28 +1,4 @@
-;> chắc tại lúc sạc chui sạc bị dơ hay sao ý nên hư e<br>
-;> ngta đền cục mới ròi e<br>
-;> đi về mệt ngủ thôi e<br>
-;> nhớ a hem mà chạy te te đi đâu z<br>
-;> nhớ a hem e<br>
-;> nào cà phê vs a hem<br>
-;> e mún ở vs a bao lâu nữa e<br>
-;> nào xuống lỗ thì thôi à e<br>
-<img width="941" height="979" alt="image" src="https://github.com/user-attachments/assets/149e68a4-b9c9-4254-bdd7-1a970e130c91" /><br>
-;> nghe mùi xạo lòn e<br>
-;> a nhớ e quá <br>
-<img width="1014" height="1018" alt="image" src="https://github.com/user-attachments/assets/65e74ecd-bf29-446e-960b-55c5c0c9a646" /><br>
-;> a hong làm cho e đâu<br>
-;> móa từ lúc mà gửi laptop đi siêu thị mua đồ là lap hay bị hư e<br>
-;> a làm công ăn lương thu nhập bth thì sao e<br>
-;> nhỏ e họ a làm ngân hàng ngày 10-12 tiếng đủ ăn đéo dư<br>
-;> nhưng mà nhà nó giàu =))<br>
-;> e ko ưng gì a thì ctay thôi e<br>
-;> chiều a ghé mua nửa con gà nướng ăn cũng ngon e<br>
-;> a vô cái group freelance của 1 cty thôi mà cả ngàn người e<br>
-;> chiều a mua nửa con gà nướng pleaku ơi gì đó ở tân bình, thấy cũng ngon mà thôi mốt mua chỗ khác =))<br>
-;> coi chỗ khác ngon hơn ko<br>
-<img width="828" height="922" alt="image" src="https://github.com/user-attachments/assets/625c3765-13f8-43e5-aaea-a9dd1c9dc628" /><br>
-;> e khoái đẻ lắm vô đây thẩm<br>
-;> a ko giống thg cha đó mà a giống con mẹ đó =))<br>
-;> e mún đẻ là phụ thôi, e mún đụ vs a là chính<br>
 ;> sao chiều e ko gặp a thêm xíu nữa<br>
-;> sang năm sau ổn định thì a cho địa chỉ mình hẹn hò nhé
+;> sang năm sau ổn định thì a cho địa chỉ mình hẹn hò nhé<br>
+;> thu nhập ổn định theo e là nhiu, là 5 triệu đều đều hàng tháng à =))<br>
+;> con lồn già kia mắc nợ làm từ lúc ra trường mà vẫn nghèo e thấy đó
