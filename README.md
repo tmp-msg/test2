@@ -24,4 +24,6 @@
 ;> làm cty product thì oke hơn e, cty product thì trả lương nhân viên theo túi tiền của chủ doanh nghiệp đó<br>
 ;> làm nó thoải mái hơn ko bị dí dealine như outsource<br>
 ;> outsource chủ yếu là ăn tiền lời (đã trừ đi chi phí khác) từ dự án bàn giao cho khách thôi mà e<br>
-;> dự án octokit của e bán đc ko, nhiu user e
+;> dự án octokit của e bán đc ko, nhiu user e<br>
+;> hỏi để biết e kinh doanh có đc ko ý mà<br>
+;> thôi ngủ ngon đi e
