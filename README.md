@@ -10,4 +10,5 @@
 ;> chắc do 1 phần giờ khó kiếm tiền thôi e<br>
 ;> ăn của ngta mà 40-50 củ thôi là cả 1 vấn đề<br>
 ;> kinh nghiệm pv nhìu của a mà ra đó =))<br>
-;> 
+;> thì a đi pv nhìu cty thấy cơ sở vật chất ngta<br>
+;> đa phần thì nhìu cty ko có quy trình rõ ràng đâu e
