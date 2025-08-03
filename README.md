@@ -9,4 +9,6 @@
 ;> ở chung e thì quần xì thường e giặt chung hay giặt riêng<br>
 ;> thấy nhìu đứa bịa chuyên coi z thôi chứ ko tin lắm e<br>
 ;> nói giảm nói tránh thôi chứ thật ra là đéo tin =))<br>
-;> e thấy a gầy hơn hổm hem e
+;> e thấy a gầy hơn hổm hem e<br>
+<img width="904" height="953" alt="image" src="https://github.com/user-attachments/assets/5b9c6b0b-8a76-4ef3-9ba1-77de7de13180" /><br>
+=)) này e chắc cú ròi
