@@ -3,4 +3,4 @@
 ;> e search e coi thử đi bùn cười vãi<br>
 ;> =)) bùn cười mà thấy cũng hay, banh chem chép ra hong ai biết ai hết đỡ ngại<br>
 ;> con lòn già lấy chồng khổ, nào là nhà dột, ko có chỗ ngủ, chưa có lương mà phải trả nợ,...<br>
-;> 
+;> mà nồi nào vung nấy thôi e
