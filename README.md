@@ -11,4 +11,5 @@
 ;> ăn của ngta mà 40-50 củ thôi là cả 1 vấn đề<br>
 ;> kinh nghiệm pv nhìu của a mà ra đó =))<br>
 ;> thì a đi pv nhìu cty thấy cơ sở vật chất ngta<br>
-;> đa phần thì nhìu cty ko có quy trình rõ ràng đâu e
+;> đa phần thì nhìu cty ko có quy trình rõ ràng đâu e<br>
+;> cty cũ a làm của thg cha dũng gần 15 năm mà quy trình cũng xà lơ xà lững<br>
