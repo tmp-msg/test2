@@ -8,4 +8,6 @@
 ;> vì trả lương 1x củ mà nó suy nghĩ lọc ứng viên tuyển cả năm trời<br>
 ;> tuyển dev lương 8-12 củ nó còn suy nghĩ đắn đo, tuyển 1-2 người =))<br>
 ;> chắc do 1 phần giờ khó kiếm tiền thôi e<br>
-;> ăn của ngta mà 40-50 củ thôi là cả 1 vấn đề
+;> ăn của ngta mà 40-50 củ thôi là cả 1 vấn đề<br>
+;> kinh nghiệm pv nhìu của a mà ra đó =))<br>
+;> 
