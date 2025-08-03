@@ -17,4 +17,6 @@
 =)) quan trọng là doanh thu duy trì doanh nghiệp ngta thôi e<br>
 ;> gặp mấy cty outsource thì auto bào nhân viên<br>
 ;> e chắc nhận dự án làm outsource nên e hỉu mà<br>
-;> cái nào mà ít dụng chạm tới tiền nhìu khi ngta ko quan trọng, a nói thật
+;> cái nào mà ít dụng chạm tới tiền nhìu khi ngta ko quan trọng, a nói thật<br>
+;> fpt cũng outsorce e, thường mà e thấy cty IT nào mà quy mô cả ngàn người á, là khả năng 90% outsource<br>
+;> nào là fpt, tma solutions, KMS technology, HDWEBSOFT,...toàn là outsource
