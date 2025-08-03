@@ -19,4 +19,6 @@
 ;> nhìu cái đọc chơi chơi thôi e, chứ tin vs nghe thì ko đc<br>
 ;> làm gì hôm nay thấy nhìu đứa xin tiền online lắm e<br>
 <img width="1098" height="993" alt="image" src="https://github.com/user-attachments/assets/38600c90-6826-442d-8062-df1417f1483e" /><br>
-;> ai dư tiền mà cho =))
+;> ai dư tiền mà cho =))<br>
+<img width="1027" height="990" alt="image" src="https://github.com/user-attachments/assets/35323435-6ccf-406f-970f-f8e87846827d" /><br>
+;> thấy đâu tầm dưới 10 đứa ròi e, vl thật 
