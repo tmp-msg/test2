@@ -12,4 +12,6 @@
 ;> e thấy a gầy hơn hổm hem e<br>
 <img width="904" height="953" alt="image" src="https://github.com/user-attachments/assets/5b9c6b0b-8a76-4ef3-9ba1-77de7de13180" /><br>
 =)) này e chắc cú ròi<br>
-;> e đi chơi vs a chắc e ngại lắm
+;> e đi chơi vs a chắc e ngại lắm<br>
+;> <img width="835" height="857" alt="image" src="https://github.com/user-attachments/assets/f58ed5be-e3ad-46b0-9815-1e684b6cc88d" /><br>
+;> a chắc xây nhà cho bản thân ròi ba mẹ sau =))
