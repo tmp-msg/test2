@@ -16,4 +16,7 @@
 ;> <img width="835" height="857" alt="image" src="https://github.com/user-attachments/assets/f58ed5be-e3ad-46b0-9815-1e684b6cc88d" /><br>
 ;> a chắc xây nhà cho bản thân ròi ba mẹ sau =))<br>
 ;> lớn ròi ở riêng nó thoải mái làm gì làm ko bị soi mói e<br>
-;> nhìu cái đọc chơi chơi thôi e, chứ tin vs nghe thì ko đc
+;> nhìu cái đọc chơi chơi thôi e, chứ tin vs nghe thì ko đc<br>
+;> làm gì hôm nay thấy nhìu đứa xin tiền online lắm e<br>
+<img width="1098" height="993" alt="image" src="https://github.com/user-attachments/assets/38600c90-6826-442d-8062-df1417f1483e" /><br>
+;> ai dư tiền mà cho =))
