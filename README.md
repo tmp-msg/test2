@@ -15,4 +15,5 @@
 ;> e đi chơi vs a chắc e ngại lắm<br>
 ;> <img width="835" height="857" alt="image" src="https://github.com/user-attachments/assets/f58ed5be-e3ad-46b0-9815-1e684b6cc88d" /><br>
 ;> a chắc xây nhà cho bản thân ròi ba mẹ sau =))<br>
-;> lớn ròi ở riêng nó thoải mái làm gì làm ko bị soi mói e
+;> lớn ròi ở riêng nó thoải mái làm gì làm ko bị soi mói e<br>
+;> nhìu cái đọc chơi chơi thôi e, chứ tin vs nghe thì ko đc
