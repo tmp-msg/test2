@@ -19,4 +19,7 @@
 ;> e chắc nhận dự án làm outsource nên e hỉu mà<br>
 ;> cái nào mà ít dụng chạm tới tiền nhìu khi ngta ko quan trọng, a nói thật<br>
 ;> fpt cũng outsorce e, thường mà e thấy cty IT nào mà quy mô cả ngàn người á, là khả năng 90% outsource<br>
-;> nào là fpt, tma solutions, KMS technology, HDWEBSOFT,...toàn là outsource
+;> nào là fpt, tma solutions, KMS technology, HDWEBSOFT,...toàn là outsource<br>
+;> outsource thì thường là lương éo cao e =))<br>
+;> làm cty product thì oke hơn e, cty product thì trả lương nhân viên theo túi tiền của chủ doanh nghiệp đó<br>
+;> làm nó thoải mái hơn ko bị dí dealine như outsource
