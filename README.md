@@ -23,4 +23,6 @@
 <img width="1027" height="990" alt="image" src="https://github.com/user-attachments/assets/35323435-6ccf-406f-970f-f8e87846827d" /><br>
 ;> thấy đâu tầm dưới 10 đứa ròi e, vl thật <br>
 <img width="962" height="1263" alt="image" src="https://github.com/user-attachments/assets/6e9e8cf7-ecb0-48d9-9579-ebca42279cf1" /><br>
-=)) chắc xài tool edit lại hình thôi e, chứ ai mà cho
+=)) chắc xài tool edit lại hình thôi e, chứ ai mà cho<br>
+;> e học design edit đc mà, xài tool bth cũng edit đc, quét mã QR bừa là cũng coi như ấn link bị hack đt lun<br>
+;> 
