@@ -17,4 +17,4 @@
 =)) quan trọng là doanh thu duy trì doanh nghiệp ngta thôi e<br>
 ;> gặp mấy cty outsource thì auto bào nhân viên<br>
 ;> e chắc nhận dự án làm outsource nên e hỉu mà<br>
-;> 
+;> cái nào mà ít dụng chạm tới tiền nhìu khi ngta ko quan trọng, a nói thật
