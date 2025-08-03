@@ -5,4 +5,7 @@
 ;> con lòn già lấy chồng khổ, nào là nhà dột, ko có chỗ ngủ, chưa có lương mà phải trả nợ,...<br>
 ;> mà nồi nào vung nấy thôi e<br>
 ;> ra trường 2 năm a mới nhận ra là ko phải cty nào cũng có khả năng trả lương 30 củ<br>
-;> vì trả lương 1x củ mà nó suy nghĩ lọc ứng viên tuyển cả năm trời
+;> vì trả lương 1x củ mà nó suy nghĩ lọc ứng viên tuyển cả năm trời<br>
+;> tuyển dev lương 8-12 củ nó còn suy nghĩ đắn đo, tuyển 1-2 người =))<br>
+;> chắc do 1 phần giờ khó kiếm tiền thôi e<br>
+;> ăn của ngta mà 40-50 củ thôi là cả 1 vấn đề
