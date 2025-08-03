@@ -11,4 +11,5 @@
 ;> nói giảm nói tránh thôi chứ thật ra là đéo tin =))<br>
 ;> e thấy a gầy hơn hổm hem e<br>
 <img width="904" height="953" alt="image" src="https://github.com/user-attachments/assets/5b9c6b0b-8a76-4ef3-9ba1-77de7de13180" /><br>
-=)) này e chắc cú ròi
+=)) này e chắc cú ròi<br>
+;> e đi chơi vs a chắc e ngại lắm
