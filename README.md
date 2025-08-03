@@ -8,4 +8,5 @@
 ;> a ko có móc của e đâu<br>
 ;> ở chung e thì quần xì thường e giặt chung hay giặt riêng<br>
 ;> thấy nhìu đứa bịa chuyên coi z thôi chứ ko tin lắm e<br>
-;> nói giảm nói tránh thôi chứ thật ra là đéo tin =))
+;> nói giảm nói tránh thôi chứ thật ra là đéo tin =))<br>
+;> e thấy a gầy hơn hổm hem e
