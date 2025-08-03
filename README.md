@@ -6,4 +6,5 @@
 ;> xạo lòn e, page này từng có phốt bịa chuyện ròi e<br>
 <img width="923" height="896" alt="image" src="https://github.com/user-attachments/assets/5284c2d4-af06-4bde-8e68-336267ee72a4" /><br>
 ;> a ko có móc của e đâu<br>
-;> ở chung e thì quần xì thường e giặt chung hay giặt riêng
+;> ở chung e thì quần xì thường e giặt chung hay giặt riêng<br>
+;> thấy nhìu đứa bịa chuyên coi z thôi chứ ko tin lắm e
