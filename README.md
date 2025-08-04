@@ -7,4 +7,7 @@
 ;> hong lẽ làm 5 triệu hoặc 7 triệu từ năm này qua năm khác là ổn định à, cái đó là nghèo ổn định<br>
 ;> ổn định kiểu đó là nghèo ổn định<br>
 ;> làm lương kiểu đó mà ở sài gòn là làm hoài mà ko thấy dư lun á, nghèo bền vững lun á<br>
-;> cái đó gọi là an phận hỉu hem e
+;> cái đó gọi là an phận hỉu hem e<br>
+;> an phận 1 là làm nhà nước 2 là làm khu công nghiệp<br>
+;> <img width="1001" height="357" alt="image" src="https://github.com/user-attachments/assets/cba001ab-acda-43b7-a230-1e6b06a695a1" /><br>
+;> pv 5 vòng, e thấy đó ăn tiền ngta đâu có dễ
