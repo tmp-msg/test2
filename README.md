@@ -14,4 +14,5 @@
 <img width="976" height="430" alt="image" src="https://github.com/user-attachments/assets/6f553a88-2e4d-4976-833d-a7f9165c4baf" /><br>
 ;> ngta chịu khó kiếm tiền ghê<br>
 <img width="956" height="1072" alt="image" src="https://github.com/user-attachments/assets/042cc559-9ac8-47ad-bfd7-82c8c70dc215" /><br>
-=)) 9 năm kinh nghiệm e, a thấy IT mà tầm 5 năm kinh nghiệm là làm freelance vs remote nhìu
+=)) 9 năm kinh nghiệm e, a thấy IT mà tầm 5 năm kinh nghiệm là làm freelance vs remote nhìu<br>
+;>
