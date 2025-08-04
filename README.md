@@ -10,4 +10,6 @@
 ;> cái đó gọi là an phận hỉu hem e<br>
 ;> an phận 1 là làm nhà nước 2 là làm khu công nghiệp<br>
 ;> <img width="1001" height="357" alt="image" src="https://github.com/user-attachments/assets/cba001ab-acda-43b7-a230-1e6b06a695a1" /><br>
-;> pv 5 vòng, e thấy đó ăn tiền ngta đâu có dễ
+;> pv 5 vòng, e thấy đó ăn tiền ngta đâu có dễ<br>
+<img width="976" height="430" alt="image" src="https://github.com/user-attachments/assets/6f553a88-2e4d-4976-833d-a7f9165c4baf" /><br>
+;> ngta chịu khó kiếm tiền ghê
