@@ -10,3 +10,4 @@
 ;> e tuyển tầm 5- 10 năm là đc ròi e, đừng tuyển già quá<br>
 ;> tầm 5-10 năm mà chuyên môn ngta tốt là đc, hiếm có cty nào ngta tuyển dev già lắm<br>
 ;> làm dev khi còn trẻ còn có tuổi ngta lên cấp quản lý hết ko có ngồi gõ code nữa e<br>
+;> e tuyển dev kinh nghiệm là 1 phần thôi ròi hỏi ở cty cũ nó đã làm những dự án gì, có phù hợp vs dự án cty e đang hay ko
