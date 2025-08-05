@@ -31,4 +31,5 @@
 ;> làm dev mà ko lương, tưởng làm co.fouder ăn chia cổ phần cty =))<br>
 ;> chắc con lòn già đầu xoăn bịa chứ ko ai e, nó soi trang github này mà<br>
 ;> làm dev mà 6 tháng đéo có lương, thực tập cũng ko bào đến thế<br>
-;> chỉ có làm co.founder hoặc bịa chuyện xạo lòn thôi e =))
+;> chỉ có làm co.founder hoặc bịa chuyện xạo lòn thôi e =))<br>
+;> xưa e mở cty tuyển dev vô e biết đó, ko trả tiền thì ai mà làm cho mình
