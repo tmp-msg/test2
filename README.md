@@ -13,4 +13,5 @@
 ;> e tuyển dev kinh nghiệm là 1 phần thôi ròi hỏi ở cty cũ nó đã làm những dự án gì, có phù hợp vs dự án cty e đang hay cần ko<br>
 ;> đừng có chăm chăm vô kinh nghiệm ko<br>
 ;> a thấy 1 cty thường thường ngta có 1-2 ông senior thôi, kiểu như nuôi nhìu thì tốn tiền á e<br>
-;> còn lại là kinh nghiệm cỡ middle, junior gì thôi
+;> còn lại là kinh nghiệm cỡ middle, junior gì thôi<br>
+;> ngta nuôi ít nhân sự IT để đỡ tốn tiền cũng có e
