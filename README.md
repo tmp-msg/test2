@@ -7,4 +7,6 @@
 ;> a nói thật e<br>
 ;> xong tuyển người trẻ ít kinh nghiệm hơn lương thấp hơn<br>
 ;> hồi đợt a thấy e tuyển dev gì gần 40 tuổi =)), a mắc cười<br>
-;> e tuyển tầm 5- 10 năm là đc ròi e, đừng tuyển già quá
+;> e tuyển tầm 5- 10 năm là đc ròi e, đừng tuyển già quá<br>
+;> tầm 5-10 năm mà chuyên môn ngta tốt là đc, hiếm có cty nào ngta tuyển dev già lắm<br>
+;> làm dev khi còn trẻ còn có tuổi ngta lên cấp quản lý hết ko có ngồi gõ code nữa e
