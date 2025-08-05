@@ -14,4 +14,7 @@
 ;> đừng có chăm chăm vô kinh nghiệm ko<br>
 ;> a thấy 1 cty thường thường ngta có 1-2 ông senior thôi, kiểu như nuôi nhìu thì tốn tiền á e<br>
 ;> còn lại là kinh nghiệm cỡ middle, junior gì thôi<br>
-;> ngta nuôi ít nhân sự IT để đỡ tốn tiền cũng có e
+;> ngta nuôi ít nhân sự IT để đỡ tốn tiền cũng có e<br>
+;> có tiền mua chiếc xe ôtô vừa tiền đi nắng đi mưa cũng ngon e, mua vừa tiền thôi e đỡ tốn tiền nuôi<br>
+;> chạy xe xịn là thu nhập hằng tháng phải cao<br>
+;>
