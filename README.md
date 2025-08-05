@@ -26,4 +26,5 @@
 <img width="1062" height="457" alt="image" src="https://github.com/user-attachments/assets/cbe3f967-3f79-482f-82a6-d8bb6b86d225" /><br>
 ;> đọc thấy bịp chưa e =)), bởi a nói mạng internet ai đăng gì cũng đc ko có kiểm duyệt thật giả nên nhìu người bịa chuyện<br>
 <img width="1047" height="1090" alt="image" src="https://github.com/user-attachments/assets/98ba2360-f23f-401e-aeda-282581be4e6e" /><br>
-;> biết bịp bợm hợp lý, mà đi làm là chắc chắn phải có lương ròi e =)), câu đầu thấy bịp ròi
+;> biết bịp bợm hợp lý, mà đi làm là chắc chắn phải có lương ròi e =)), câu đầu thấy bịp ròi<br>
+;> bịp bợm tìm hỉu nửa mùa e =))
