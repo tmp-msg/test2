@@ -19,4 +19,5 @@
 ;> chạy xe xịn là thu nhập hằng tháng phải cao<br>
 ;> chi phí e bỏ ra để nuôi chiếc xe ôtô khác với việc e ráng để dành mua 1 chiếc xe tay ga, SH ý<br>
 ;> nó đâu có giống như câu chuyện mà nhìu người chạy chiếc xe tay ga ngon mà trong bóp ko có tiền<br>
-;>
+;> hay là xài iphone 16-17 mà éo có tiền<br>
+;> 
