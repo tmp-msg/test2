@@ -28,4 +28,7 @@
 <img width="1047" height="1090" alt="image" src="https://github.com/user-attachments/assets/98ba2360-f23f-401e-aeda-282581be4e6e" /><br>
 ;> biết bịp bợm hợp lý, mà đi làm là chắc chắn phải có lương ròi e =)), câu đầu thấy bịp ròi<br>
 ;> bịp bợm tìm hỉu nửa mùa e =))<br>
-;> làm dev mà ko lương, tưởng làm co.fouder ăn chia cổ phần cty =))
+;> làm dev mà ko lương, tưởng làm co.fouder ăn chia cổ phần cty =))<br>
+;> chắc con lòn già đầu xoăn bịa chứ ko ai e, nó soi trang github này mà<br>
+;> làm dev mà 6 tháng đéo có lương, thực tập cũng ko bào đến thế<br>
+;> chỉ có làm co.founder hoặc bịa chuyện xạo lòn thôi e =))
