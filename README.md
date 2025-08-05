@@ -32,4 +32,6 @@
 ;> chắc con lòn già đầu xoăn bịa chứ ko ai e, nó soi trang github này mà<br>
 ;> làm dev mà 6 tháng đéo có lương, thực tập cũng ko bào đến thế<br>
 ;> chỉ có làm co.founder hoặc bịa chuyện xạo lòn thôi e =))<br>
-;> xưa e mở cty tuyển dev vô e biết đó, ko trả tiền thì ai mà làm cho mình
+;> xưa e mở cty tuyển dev vô e biết đó, ko trả tiền thì ai mà làm cho mình<br>
+;> con già đó ghét a nghĩ a cờ bạc nợ nần chơi game đàn đúm cho nó nhẹ đầu<br>
+;>
