@@ -22,4 +22,6 @@
 ;> hay là xài iphone 16-17 mà éo có tiền<br>
 ;> ngủ vs a e bận áo dú hay thả rông<br>
 ;> nghĩ thôi đã thấy nóng mắt ròi e<br>
-;> thôi ngủ ngon bye e
+;> thôi ngủ ngon bye e<br>
+<img width="1062" height="457" alt="image" src="https://github.com/user-attachments/assets/cbe3f967-3f79-482f-82a6-d8bb6b86d225" /><br>
+;> đọc thấy bịp chưa e =)), bởi a nói mạng internet ai đăng gì cũng đc ko có kiểm duyệt thật giả nên nhìu người bịa chuyện<br>
