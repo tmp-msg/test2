@@ -34,4 +34,5 @@
 ;> chỉ có làm co.founder hoặc bịa chuyện xạo lòn thôi e =))<br>
 ;> xưa e mở cty tuyển dev vô e biết đó, ko trả tiền thì ai mà làm cho mình<br>
 ;> con già đó ghét a nghĩ a cờ bạc nợ nần chơi game đàn đúm cho nó nhẹ đầu<br>
-;> chứ a thiện lành cũng như bao con người trong xã hội thôi
+;> chứ a thiện lành cũng như bao con người trong xã hội thôi<br>
+;> bth rảnh a cũng chả chơi game bh
