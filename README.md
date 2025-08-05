@@ -11,4 +11,6 @@
 ;> tầm 5-10 năm mà chuyên môn ngta tốt là đc, hiếm có cty nào ngta tuyển dev già lắm<br>
 ;> làm dev khi còn trẻ còn có tuổi ngta lên cấp quản lý hết ko có ngồi gõ code nữa e<br>
 ;> e tuyển dev kinh nghiệm là 1 phần thôi ròi hỏi ở cty cũ nó đã làm những dự án gì, có phù hợp vs dự án cty e đang hay cần ko<br>
-;> đừng có chăm chăm vô kinh nghiệm ko
+;> đừng có chăm chăm vô kinh nghiệm ko<br>
+;> a thấy 1 cty thường thường ngta có 1-2 ông senior thôi, kiểu như nuôi nhìu thì tốn tiền á e<br>
+;> còn lại là kinh nghiệm cỡ middle, junior gì thôi
