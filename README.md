@@ -17,4 +17,6 @@
 ;> ngta nuôi ít nhân sự IT để đỡ tốn tiền cũng có e<br>
 ;> có tiền mua chiếc xe ôtô vừa tiền đi nắng đi mưa cũng ngon e, mua vừa tiền thôi e đỡ tốn tiền nuôi<br>
 ;> chạy xe xịn là thu nhập hằng tháng phải cao<br>
+;> chi phí e bỏ ra để nuôi chiếc xe ôtô khác với việc e ráng để dành mua 1 chiếc xe tay ga, SH ý<br>
+;> nó đâu có giống như câu chuyện mà nhìu người chạy chiếc xe tay ga ngon mà trong bóp ko có tiền<br>
 ;>
