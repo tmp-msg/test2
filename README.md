@@ -14,4 +14,6 @@
 ;> xin mọe 20 tỉ để e khỏi đi làm nửa =))<br>
 ;> 500 củ là ngta đi làm công ăn lương bth thôi tới 30 tuổi chưa chắc gì có, mà lên mạng xin tiền éo hỉu lun e<br>
 ;> body e ngon hem mà e hay đòi trả bài<br>
-;> sao bữa a đổi cục sạc a thấy e ngại ngại sao ý
+;> sao bữa a đổi cục sạc a thấy e ngại ngại sao ý<br>
+;> e đi chơi a sẽ chụp cho e <br>
+;> ngủ ngon e
