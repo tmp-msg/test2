@@ -8,4 +8,5 @@
 <img width="944" height="1131" alt="image" src="https://github.com/user-attachments/assets/d5a7ec60-b0c8-4316-b97c-cd093e42ab8f" /><br>
 ;> bữa a thấy xin 500.000.000 triệu đi chơi mới kinh chứ =))<br>
 ;> xin 500 củ mở quán cà phê, quán ăn lun chứ đi chơi gì e =))<br>
-;> 500 củ đủ làm cái đám cưới lun e mà ngta phải nai lưng đi làm dành dụm
+;> 500 củ đủ làm cái đám cưới lun e mà ngta phải nai lưng đi làm dành dụm<br>
+;> thấy nay cỡ 3 ngày ròi e, 20 nick fb à, có quét bh đâu mà biết là cùng 1 người hay khác người e
