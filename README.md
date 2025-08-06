@@ -12,4 +12,4 @@
 ;> thấy nay cỡ 3 ngày ròi e, 20 nick fb à, có quét bh đâu mà biết là cùng 1 người hay khác người e<br>
 ;> quét nhìu nick mà ra cùng 1 tên ngân hàng là á đù =))<br>
 ;> xin mọe 20 tỉ để e khỏi đi làm nửa =))<br>
-;> 
+;> 500 củ là ngta đi làm công ăn lương bth thôi tới 30 tuổi chưa chắc gì có, mà lên mạng xin tiền éo hỉu lun e
