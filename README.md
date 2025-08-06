@@ -9,4 +9,7 @@
 ;> bữa a thấy xin 500.000.000 triệu đi chơi mới kinh chứ =))<br>
 ;> xin 500 củ mở quán cà phê, quán ăn lun chứ đi chơi gì e =))<br>
 ;> 500 củ đủ làm cái đám cưới lun e mà ngta phải nai lưng đi làm dành dụm<br>
-;> thấy nay cỡ 3 ngày ròi e, 20 nick fb à, có quét bh đâu mà biết là cùng 1 người hay khác người e
+;> thấy nay cỡ 3 ngày ròi e, 20 nick fb à, có quét bh đâu mà biết là cùng 1 người hay khác người e<br>
+;> quét nhìu nick mà ra cùng 1 tên ngân hàng là á đù =))<br>
+;> xin mọe 20 tỉ để e khỏi đi làm nửa =))<br>
+;> 
