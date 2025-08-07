@@ -9,4 +9,5 @@
 ;> chưa hẹn hò nữa cưới gì e<br>
 ;> nay tháng 6 âm lịch à e<br>
 ;> đi chơi qua lại ở thử ngủ chung coi có êm ko ròi mới ở chung tới già đc<br>
-;> a đi làm có tiền mướn trọ tầm hơn 4 củ lun điện nước mới mời e qua chơi đc
+;> a đi làm có tiền mướn trọ tầm hơn 4 củ lun điện nước mới mời e qua chơi đc<br>
+;> qua chơi thích ngủ lại thì ngủ
