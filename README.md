@@ -6,4 +6,5 @@
 ;> lên mạng cười haha hôhô vô tri như khùng z chứ ngoài đời khổ chetme đéo ai khổ lại lun e=))<br>
 ;> nửa 2 mình ở chung nhe e<br>
 ;> tối đóng phim séc<br>
-;> chưa hẹn hò nữa cưới gì e
+;> chưa hẹn hò nữa cưới gì e<br>
+;> nay tháng 6 âm lịch à e
