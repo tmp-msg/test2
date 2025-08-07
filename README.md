@@ -12,4 +12,5 @@
 ;> con yến giò heo làm nay gần 50 tuổi mà éo có tài sản gì ngoài 2 đứa con<br>
 ;> <img width="1047" height="1189" alt="image" src="https://github.com/user-attachments/assets/a68d57d9-db4b-476a-86f2-d696a0908e81" /><br>
 ;> đúng là mạng xã hội thì ai nói gì cũng đc e<br>
-;> có tiền mà éo xài hành xác hay gì e
+;> có tiền mà éo xài hành xác hay gì e<br>
+;> ngủ ngon nhe, tự xử ít thôi nhe e<br>
