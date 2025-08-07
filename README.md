@@ -8,4 +8,6 @@
 ;> a quen e hồi cuối tháng 4 lận e, mới quen gần 1,5 năm à e<br>
 ;> e làm tròn hơn 2 năm =))<br>
 <img width="979" height="760" alt="image" src="https://github.com/user-attachments/assets/df0f5c80-e603-47a5-8ba0-b511b3619b24" /><br>
-;> e xài nước hoa này ko a mua cho chai 200k 10ml vì a đang nghèo
+;> e xài nước hoa này ko a mua cho chai 200k 10ml vì a đang nghèo<br>
+;> con yến giò heo làm nay gần 50 tuổi mà éo có tài sản gì ngoài 2 đứa con<br>
+;> 
