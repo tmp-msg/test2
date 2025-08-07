@@ -10,4 +10,6 @@
 <img width="979" height="760" alt="image" src="https://github.com/user-attachments/assets/df0f5c80-e603-47a5-8ba0-b511b3619b24" /><br>
 ;> e xài nước hoa này ko a mua cho chai 200k 10ml vì a đang nghèo<br>
 ;> con yến giò heo làm nay gần 50 tuổi mà éo có tài sản gì ngoài 2 đứa con<br>
-;> 
+;> <img width="1047" height="1189" alt="image" src="https://github.com/user-attachments/assets/a68d57d9-db4b-476a-86f2-d696a0908e81" /><br>
+;> đúng là mạng xã hội thì ai nói gì cũng đc e<br>
+;> có tiền mà éo xài hành xác hay gì e
