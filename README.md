@@ -1,9 +1,3 @@
-<img width="959" height="975" alt="image" src="https://github.com/user-attachments/assets/e519e3cd-dffc-4edf-bd5f-e1239c53affb" /><br>
-;> mình call vầy đi e<br>
-;> con lòn già sau này khổ a nhìn a biết <br>
-;> già lương thấp ko tài sản nợn ngập đầu phải nuôi con<br>
-;> nó chet sớm là nó khỏe thôi e =))<br>
-;> lên mạng cười haha hôhô vô tri như khùng z chứ ngoài đời khổ chetme đéo ai khổ lại lun e=))<br>
 ;> nửa 2 mình ở chung nhe e<br>
 ;> tối đóng phim séc<br>
 ;> chưa hẹn hò nữa cưới gì e<br>
@@ -11,4 +5,5 @@
 ;> đi chơi qua lại ở thử ngủ chung coi có êm ko ròi mới ở chung tới già đc<br>
 ;> a đi làm có tiền mướn trọ tầm hơn 4 củ lun điện nước mới mời e qua chơi đc<br>
 ;> qua chơi thích ngủ lại thì ngủ<br>
-;> a quen e hồi cuối tháng 4 lận e, mới quen gần 1,5 năm à e
+;> a quen e hồi cuối tháng 4 lận e, mới quen gần 1,5 năm à e<br>
+;> e làm tròn hơn 2 năm =))
