@@ -6,4 +6,6 @@
 ;> a đi làm có tiền mướn trọ tầm hơn 4 củ lun điện nước mới mời e qua chơi đc<br>
 ;> qua chơi thích ngủ lại thì ngủ<br>
 ;> a quen e hồi cuối tháng 4 lận e, mới quen gần 1,5 năm à e<br>
-;> e làm tròn hơn 2 năm =))
+;> e làm tròn hơn 2 năm =))<br>
+<img width="979" height="760" alt="image" src="https://github.com/user-attachments/assets/df0f5c80-e603-47a5-8ba0-b511b3619b24" /><br>
+;> e xài nước hoa này ko a mua cho chai 200k 10ml vì a đang nghèo
