@@ -7,4 +7,5 @@
 ;> nửa 2 mình ở chung nhe e<br>
 ;> tối đóng phim séc<br>
 ;> chưa hẹn hò nữa cưới gì e<br>
-;> nay tháng 6 âm lịch à e
+;> nay tháng 6 âm lịch à e<br>
+;> đi chơi qua lại ở thử ngủ chung coi có êm ko ròi mới ở chung tới già đc
