@@ -2,4 +2,6 @@
 ;> mình call vầy đi e<br>
 ;> con lòn già sau này khổ a nhìn a biết <br>
 ;> già lương thấp ko tài sản nợn ngập đầu phải nuôi con<br>
-;> nó chet sớm là nó khỏe thôi e =))
+;> nó chet sớm là nó khỏe thôi e =))<br>
+;> lên mạng cười haha hôhô vô tri như khùng z chứ ngoài đời khổ chetme đéo ai khổ lại lun e=))<br>
+;> 
