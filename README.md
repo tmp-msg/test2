@@ -10,4 +10,5 @@
 ;> nay tháng 6 âm lịch à e<br>
 ;> đi chơi qua lại ở thử ngủ chung coi có êm ko ròi mới ở chung tới già đc<br>
 ;> a đi làm có tiền mướn trọ tầm hơn 4 củ lun điện nước mới mời e qua chơi đc<br>
-;> qua chơi thích ngủ lại thì ngủ
+;> qua chơi thích ngủ lại thì ngủ<br>
+;> a quen e hồi cuối tháng 4 lận e, mới quen gần 1,5 năm à e
