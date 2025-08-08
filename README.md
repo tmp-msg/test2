@@ -5,4 +5,6 @@
 ;> lâu lâu post hình lên a coi coi gầy tròn như nào e<br>
 ;> mấy nay con mấy tập phim heo ròi e<br>
 ;> nửa e đẻ ròi a cho ăn cơm vs muối ớt giống con nhỏ gì trên tiktok chịu hem<br>
-;> ăn riết gầy teo phụ tùng hết lun
+;> ăn riết gầy teo phụ tùng hết lun<br>
+;> <img width="1003" height="956" alt="image" src="https://github.com/user-attachments/assets/f5831a4a-6373-46af-b624-77e58a16af27" /><br>
+;> éo phải view của ng giàu lúc nào cũng đúng e<br>
