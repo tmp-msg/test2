@@ -9,4 +9,6 @@
 ;> <img width="1003" height="956" alt="image" src="https://github.com/user-attachments/assets/f5831a4a-6373-46af-b624-77e58a16af27" /><br>
 ;> éo phải view của ng giàu lúc nào cũng đúng e<br>
 ;> chat sex vs a chắc e chảy nước lun<br>
-;> mấy nay còn móc lavabo nữa hem e
+;> mấy nay còn móc lavabo nữa hem e<br>
+;> thôi khuya ròi ngủ sớm đi e, mai tranh thủ a nhắn sớm cho tầm 8-9h tối a nhắn cho<br>
+;> ngủ ngon e
