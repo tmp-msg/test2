@@ -1,2 +1,3 @@
 ;> a nhô e<br>
-;> nãy giờ chồng lubu tí e
+;> nãy giờ chồng lubu tí e<br>
+;> hem phải a ít nhắn là a đòi ctay e có con khác đâu e
