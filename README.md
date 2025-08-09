@@ -2,4 +2,5 @@
 ;> 2k vẫn apply fresher e<br>
 ;> thị trường khó xin việc chứ đùa đâu e<br>
 <img width="930" height="1179" alt="image" src="https://github.com/user-attachments/assets/a50f6326-a2b7-46d9-b956-cb870fcf8863" /><br>
-;> non tay hơn a nữa
+;> non tay hơn a nữa<br>
+;> a thấy làm gì chân chính mà có nhìu tiền là đc e, già cũng bị cho thôi việc à
