@@ -10,4 +10,5 @@
 <img width="2514" height="1357" alt="image" src="https://github.com/user-attachments/assets/4de222a1-866b-4ff3-9a63-e2e5c8e18ddf" /><br>
 ;> e thích ăn buffet hem, buffet thì a thấy ăn vs bạn hợp hơn tại hơi ồn<br>
 <img width="1611" height="989" alt="image" src="https://github.com/user-attachments/assets/fb92316b-614e-4ad9-aa6f-d5872fe4c777" /><br>
-;> chat-gpt5 đó e
+;> chat-gpt5 đó e<br>
+;> mấy nay có nungfd hem e
