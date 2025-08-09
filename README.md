@@ -12,4 +12,6 @@
 <img width="1611" height="989" alt="image" src="https://github.com/user-attachments/assets/fb92316b-614e-4ad9-aa6f-d5872fe4c777" /><br>
 ;> chat-gpt5 đó e<br>
 ;> mấy nay có nungfd hem e<br>
-=)) iu xa mà nungfd thì làm gì đc e
+=)) iu xa mà nungfd thì làm gì đc e<br>
+;> cty e có mua giải quảng cáo thương hiệu như cty này hem<br>
+<img width="1450" height="1177" alt="image" src="https://github.com/user-attachments/assets/816f281b-0f47-4967-89d9-9ebf89c4cf5a" />
