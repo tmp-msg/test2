@@ -8,4 +8,6 @@
 ;> thành ra nhìu khi a cũng thắc mắc<br>
 ;> nói chung thì e xây dựng hình ảnh cũng tốt thôi, mà nhìu ng ngta thực tế vs khôn thì họ quan trọng phúc lợi vs mức lương hơn, môi trường làm việc cũng là 1 phần<br>
 ;> e mà ko gặp a là e ko biết nungfd lon ròi e<br>
-;> nhà a có nuôi mấy con poodle mà nuôi thì có con ẻ ra máu đi chữa cũng chet mất tiêu
+;> nhà a có nuôi mấy con poodle mà nuôi thì có con bệnh ẻ ra máu đi chữa cũng chet mất tiêu<br>
+;> nó nằm mà máu từ lỗ đít chảy re re lun e<br>
+;> mẹ a dọn =)), a ngại nuôi chó mèo vì sợ hốt cớt
