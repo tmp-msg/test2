@@ -11,4 +11,5 @@
 ;> e thích ăn buffet hem, buffet thì a thấy ăn vs bạn hợp hơn tại hơi ồn<br>
 <img width="1611" height="989" alt="image" src="https://github.com/user-attachments/assets/fb92316b-614e-4ad9-aa6f-d5872fe4c777" /><br>
 ;> chat-gpt5 đó e<br>
-;> mấy nay có nungfd hem e
+;> mấy nay có nungfd hem e<br>
+=)) iu xa mà nungfd thì làm gì đc e
