@@ -12,4 +12,6 @@
 ;> nó nằm mà máu từ lỗ đít chảy re re lun e<br>
 ;> mẹ a dọn =)), a ngại nuôi chó mèo vì sợ hốt cớt<br>
 ![unnamed (5)](https://github.com/user-attachments/assets/6d7e1e29-05b0-4388-aef7-301e68f48140)<br>
-;> nhà a có nuôi con này mà bệnh chet òi
+;> nhà a có nuôi con này mà bệnh chet òi<br>
+;> e nuôi chó thì đủ nhiu tháng mới chích ngừa đc e<br>
+;> khuya ròi ngủ đi e, ngủ ngon e
