@@ -18,4 +18,7 @@
 ;> thời buổi này có tiền là đc hết e<br>
 <img width="1460" height="1176" alt="image" src="https://github.com/user-attachments/assets/ca4e423d-f790-4b1f-a65c-5df309c24236" /><br>
 ;> hèn chi cty này lương bèo nhèo quá trời, cty nào lương bèo là a thấy tài chính có vấn đề nghèo<br>
-;> mấy giải của e cũng dễ đạt nữa a soi ròi =))
+;> mấy giải của e cũng dễ đạt nữa a soi ròi =))<br>
+;> a apply cty nào cũng xem fb qua hết e, nhìu khi thấy cty éo có giải gì mấy mà trả lương tốt<br>
+;> thành ra nhìu khi a cũng thắc mắc<br>
+;>
