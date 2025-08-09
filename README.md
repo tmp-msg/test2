@@ -5,4 +5,5 @@
 ;> non tay hơn a nữa<br>
 ;> a thấy làm gì chân chính mà có nhìu tiền là đc e, già cũng bị cho thôi việc à<br>
 ;> bồ của nhỏ bạn a làm frontend làm freelance may sao ngta mở cty thế làm có công việc lâu dài<br>
-;> ko thì cũng thất nghiệp 
+;> ko thì cũng thất nghiệp <br>
+;> cty gì của đức á e, ngta làm dự án AI thuê frontend bên việt nam
