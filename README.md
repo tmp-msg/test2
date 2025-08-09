@@ -6,4 +6,5 @@
 ;> a thấy làm gì chân chính mà có nhìu tiền là đc e, già cũng bị cho thôi việc à<br>
 ;> bồ của nhỏ bạn a làm frontend làm freelance may sao ngta mở cty thế làm có công việc lâu dài<br>
 ;> ko thì cũng thất nghiệp <br>
-;> cty gì của đức á e, ngta làm dự án AI thuê frontend bên việt nam
+;> cty gì của đức á e, ngta làm dự án AI thuê frontend bên việt nam<br>
+<img width="2514" height="1357" alt="image" src="https://github.com/user-attachments/assets/4de222a1-866b-4ff3-9a63-e2e5c8e18ddf" />
