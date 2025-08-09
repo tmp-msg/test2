@@ -15,4 +15,5 @@
 ;> nhà a có nuôi con này mà bệnh chet òi<br>
 ;> e nuôi chó thì đủ nhiu tháng mới chích ngừa đc e<br>
 ;> khuya ròi ngủ đi e, ngủ ngon e<br>
-;> vàng giờ mắc quá e, éo biết khi nào giảm để mua về để dành nữa e
+;> vàng giờ mắc quá e, éo biết khi nào giảm để mua về để dành nữa e<br>
+;> e rảnh đừng có lướt fb, tiktok, mạng xh nhìu quá toàn rác ko à e<br>
