@@ -10,4 +10,6 @@
 ;> e mà ko gặp a là e ko biết nungfd lon ròi e<br>
 ;> nhà a có nuôi mấy con poodle mà nuôi thì có con bệnh ẻ ra máu đi chữa cũng chet mất tiêu<br>
 ;> nó nằm mà máu từ lỗ đít chảy re re lun e<br>
-;> mẹ a dọn =)), a ngại nuôi chó mèo vì sợ hốt cớt
+;> mẹ a dọn =)), a ngại nuôi chó mèo vì sợ hốt cớt<br>
+![unnamed (5)](https://github.com/user-attachments/assets/6d7e1e29-05b0-4388-aef7-301e68f48140)<br>
+;> nhà a có nuôi con này mà bệnh chet òi
