@@ -17,4 +17,5 @@
 <img width="1450" height="1177" alt="image" src="https://github.com/user-attachments/assets/816f281b-0f47-4967-89d9-9ebf89c4cf5a" /><br>
 ;> thời buổi này có tiền là đc hết e<br>
 <img width="1460" height="1176" alt="image" src="https://github.com/user-attachments/assets/ca4e423d-f790-4b1f-a65c-5df309c24236" /><br>
-;> hèn chi cty này lương bèo nhèo quá trời, cty nào lương bèo là a thấy tài chính có vấn đề nghèo
+;> hèn chi cty này lương bèo nhèo quá trời, cty nào lương bèo là a thấy tài chính có vấn đề nghèo<br>
+;> mấy giải của e cũng dễ đạt nữa a soi ròi =))
