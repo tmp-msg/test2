@@ -21,4 +21,5 @@
 ;> mấy giải của e cũng dễ đạt nữa a soi ròi =))<br>
 ;> a apply cty nào cũng xem fb qua hết e, nhìu khi thấy cty éo có giải gì mấy mà trả lương tốt<br>
 ;> thành ra nhìu khi a cũng thắc mắc<br>
+;> nói chung thì e xây dựng hình ảnh cũng tốt thôi, mà nhìu ng ngta thực tế vs khôn thì họ quan trọng phúc lợi vs mức lương hơn, môi trường làm việc cũng là 1 phần<br>
 ;>
