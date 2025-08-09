@@ -14,4 +14,5 @@
 ![unnamed (5)](https://github.com/user-attachments/assets/6d7e1e29-05b0-4388-aef7-301e68f48140)<br>
 ;> nhà a có nuôi con này mà bệnh chet òi<br>
 ;> e nuôi chó thì đủ nhiu tháng mới chích ngừa đc e<br>
-;> khuya ròi ngủ đi e, ngủ ngon e
+;> khuya ròi ngủ đi e, ngủ ngon e<br>
+;> vàng giờ mắc quá e, éo biết khi nào giảm để mua về để dành nữa e
