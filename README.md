@@ -6,3 +6,7 @@
 ;> ngày xưa hay bây giờ cũng z đòi thử việc 100% lương là thất nghiệp chắc lun e<br>
 ;> theo luật là 85% e<br>
 ;> a thấy con yến giò heo học đại học xong chung ra học Ths làm cho nhà nước tới giờ lên mạng biết qq gì mà ưa xàm lòn, chưa từng làm doanh nghiệp tư nhân bao giờ<br>
+;> nghèo mắc nợ đùm đề chồng con mà chắc gì vài chục năm nữa khá, tới lúc đó xuống lỗ ròi<br>
+;> làm tới giờ vẫn trắng tay mắc nợ bế tắc<br>
+;> rõ khổ<br>
+;>
