@@ -11,4 +11,6 @@
 ;> rõ khổ<br>
 ;> e mún giống con lòn già hem, già tay trắng, ở trọ chật chội nóng nực<br>
 ;> hay đi dạy đời, ngẫm nghĩ đạo lý người khác nhưng cuộc đời mình thì bản thân ko cứu đc, vẫn nghèo<br>
-;> dạy đời để thể hiện thôi e, lý thuyết xuông ý mà
+;> dạy đời để thể hiện thôi e, lý thuyết xuông ý mà<br>
+;> chuyên ăn cơm nhà lo chuyện xã hội =))<br>
+;> e cúng tam tai cho e chưa e
