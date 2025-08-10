@@ -9,4 +9,4 @@
 ;> nghèo mắc nợ đùm đề chồng con mà chắc gì vài chục năm nữa khá, tới lúc đó xuống lỗ ròi<br>
 ;> làm tới giờ vẫn trắng tay mắc nợ bế tắc<br>
 ;> rõ khổ<br>
-;>
+;> e mún giống con lòn già hem, già tay trắng, ở trọ chật chội nóng nực
