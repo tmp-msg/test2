@@ -4,4 +4,5 @@
 ;> thời buổi giờ đòi thử việc 100% lương e =))<br>
 ;> 1 số ít cty thôi chứ a đó đâu phải tiêu chuẩn chung<br>
 ;> ngày xưa hay bây giờ cũng z đòi thử việc 100% lương là thất nghiệp chắc lun e<br>
-;> theo luật là 85% e
+;> theo luật là 85% e<br>
+;> a thấy con yến giò heo học đại học xong chung ra học Ths làm cho nhà nước tới giờ lên mạng biết qq gì mà ưa xàm lòn, chưa từng làm doanh nghiệp tư nhân bao giờ<br>
