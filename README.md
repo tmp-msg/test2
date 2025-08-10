@@ -14,4 +14,5 @@
 ;> dạy đời để thể hiện thôi e, lý thuyết xuông ý mà<br>
 ;> chuyên ăn cơm nhà lo chuyện xã hội =))<br>
 ;> e cúng tam tai cho e chưa e<br>
-;> a thì a thích mèo hơn chó
+;> a thì a thích mèo hơn chó<br>
+;> ngủ ngon nhe e
