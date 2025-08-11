@@ -7,3 +7,7 @@
 ;> sao hồi mới quen a đòi cưới dữ lắm mà, cưới xong đụ liền =))<br>
 ;> a thấy lương ở sài gòn 12 củ mới sống thoải mái có dư đc còn 7 củ là xào hết<br>
 ;> ko lẽ a chật vật mấy năm tủi trẻ vì ra trường trễ 1 năm =))<br>
+;> phải ra năm 2022 là ngon ròi <br>
+;> ra đúng năm suy thoái móa cay<br>
+;> a nói chứ trường đh khoa học tự nhiên a học ngày xưa ra trường trễ nhìu lắm, nhìu giảng viên mặc định là chuyện hiển nhiên lun mà<br>
+;> học trường tư như fpt của e là dồn lịch học cho ra trường sớm nửa năm phải hem<br>
