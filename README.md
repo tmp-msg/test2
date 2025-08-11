@@ -13,4 +13,5 @@
 ;> học trường tư như fpt của e là dồn lịch học cho ra trường sớm nửa năm phải hem<br>
 ;> thôi mốt cho con mình học trường tư đi e, cho sướng<br>
 ;> có tiền thì cho con học trường tư<br>
-;> xưa a học 150 chỉ lun mà
+;> xưa a học 150 chỉ lun mà<br>
+;> học vừa đủ thôi, còn học trường đời là chủ yếu
