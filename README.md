@@ -17,4 +17,5 @@
 ;> học vừa đủ thôi, còn học trường đời là chủ yếu<br>
 ;> học nhìu học cực ròi ra trường làm lương 5 củ, sống chật vật<br>
 ;> trường nào cũng lùa gà hết e<br>
-;> ra trường trể 1 năm chật vật cả tuổi trẻ =))
+;> ra trường trể 1 năm chật vật cả tuổi trẻ =))<br>
+;> ngủ ngon e
