@@ -14,4 +14,5 @@
 ;> thôi mốt cho con mình học trường tư đi e, cho sướng<br>
 ;> có tiền thì cho con học trường tư<br>
 ;> xưa a học 150 chỉ lun mà<br>
-;> học vừa đủ thôi, còn học trường đời là chủ yếu
+;> học vừa đủ thôi, còn học trường đời là chủ yếu<br>
+;> học nhìu học cực ròi ra trường làm lương 5 củ, sống chật vật
