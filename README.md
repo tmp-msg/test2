@@ -3,4 +3,5 @@
 ;> hình như e ăn cơm sớm lắm phải hem<br>
 ;> có hình sống ảo gì hem up lên a coi coi e<br>
 ;> coi nay tròn hay gầy e<br>
-;> up lên sài photoshop ko cũng quá cha
+;> up lên sài photoshop ko cũng quá cha<br>
+;> sao hồi mới quen a đòi cưới dữ lắm mà, cưới xong đụ liền =))
