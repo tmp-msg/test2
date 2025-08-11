@@ -11,3 +11,4 @@
 ;> ra đúng năm suy thoái móa cay<br>
 ;> a nói chứ trường đh khoa học tự nhiên a học ngày xưa ra trường trễ nhìu lắm, nhìu giảng viên mặc định là chuyện hiển nhiên lun mà<br>
 ;> học trường tư như fpt của e là dồn lịch học cho ra trường sớm nửa năm phải hem<br>
+;> thôi mốt cho con mình học trường tư đi e, cho sướng
