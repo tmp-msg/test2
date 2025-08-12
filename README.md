@@ -17,4 +17,8 @@
 ;> nhỏ e họ a đợt a ở chung nó đó làm đâu 10 tháng bị bệnh lệch xương sống nay nó nghĩ về nhà phụ má nó cho nó 10 củ + cha nó cho 5 củ<br>
 ;> làm 7h sáng 7h tối full tháng 15 củ<br>
 ;> kiểu như nó bán đồ cho mẹ nó ý, con nhà giàu đúng sướng e<br>
-;> móa làm có 10 tháng mà lệch xương sống vl thật e
+;> móa làm có 10 tháng mà lệch xương sống vl thật e<br>
+;> nó làm ngân hàng ý e<br>
+;> lương thấp làm 7h xách dích đi 9-10h về lương 6-7 củ<br>
+;> xong mẹ nó kêu nghỉ đi, về phụ bán rinh cám rinh gạo =))<br>
+;> ngta có lợi thế con nhà giàu e
