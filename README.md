@@ -25,4 +25,7 @@
 ;> bán đồ như là xúc thức ăn rinh bao thức ăn 25kg là cùng, ý là con gái ý nhen<br>
 ;> e ăn học đã e làm tay chân ngày nào cũng ôm vài bao thức ăn 25kg e chịu ko<br>
 ;> bao gạo thì 50kg 2 người rinh<br>
-;> chắc 1 ngày nó rinh gạo rinh thức ăn 25kg đổ lại thôi, ngày 500k
+;> chắc 1 ngày nó rinh gạo rinh thức ăn 25kg đổ lại thôi, ngày 500k<br>
+;> mẹ nó thấy nó bệnh nên thương quá kêu nó nghỉ chứ bà đó dì a mà bả trùm sò lắm<br>
+;> xưa bả bán bao thức ăn lời 2xk mà giờ lời ko biết đc 10k ko nữa mà giờ ngta cạnh tranh nửa<br>
+;> xưa thì bả bán ít ai cạnh tranh nên tích lũy mua đc mấy miếng đất có nhà hơn 3 tỷ đó e
