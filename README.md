@@ -22,4 +22,6 @@
 ;> mình sống là mình phải nghĩ tới mình trước, dư giả ròi mới nghĩ tới ng khác đúng ko e<br>
 ;> điển hình như e trả lương cao cho nhân viên ròi e phá sản ai cho e tiền đúng hem<br>
 ;> mình nghĩ tới ngta ròi ai nghĩ tới mình đúng hem<br>
-;> năm sau e tránh làm việc quan trọng thôi e
+;> năm sau e tránh làm việc quan trọng thôi e<br>
+<img width="999" height="1161" alt="image" src="https://github.com/user-attachments/assets/c0c34382-52f8-4dcb-bb9b-3a98cb8f297c" /><br>
+;> tts có ít triệu mà cũng nợ lương e
