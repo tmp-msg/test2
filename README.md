@@ -21,4 +21,7 @@
 ;> nó làm ngân hàng ý e<br>
 ;> lương thấp làm 7h xách dích đi 9-10h về lương 6-7 củ<br>
 ;> xong mẹ nó kêu nghỉ đi, về phụ bán rinh cám rinh gạo =))<br>
-;> ngta có lợi thế con nhà giàu e
+;> ngta có lợi thế con nhà giàu e<br>
+;> bán đồ như là xúc thức ăn rinh bao thức ăn 25kg là cùng, ý là con gái ý nhen<br>
+;> e ăn học đã e làm tay chân ngày nào cũng ôm vài bao thức ăn 25kg e chịu ko<br>
+;> bao gạo thì 50kg 2 người rinh
