@@ -31,4 +31,5 @@
 ;> xưa thì bả bán ít ai cạnh tranh nên tích lũy mua đc mấy miếng đất có nhà hơn 3 tỷ đó e<br>
 ;> bán thức ăn heo bò gà vịt đó e, xưa bả bán đắt mà ít ai cạnh tranh biết tiết kiệm nên giờ có của<br>
 ;> tài xế xe tải chở thức ăn cho bả lương tháng 10 củ đó e, nghĩ 4 ngày chủ nhật<br>
-;> kinh doanh có thời thì có tiền thôi e
+;> kinh doanh có thời thì có tiền thôi e<br>
+;> cho a trúng tờ vietlot vài chục tỉ vài trăm tỉ là đc đời ng chỉ có thế thôi
