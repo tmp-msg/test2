@@ -30,4 +30,5 @@
 ;> xưa bả bán bao thức ăn lời 2xk mà giờ lời ko biết đc 10k ko nữa mà giờ ngta cạnh tranh nửa<br>
 ;> xưa thì bả bán ít ai cạnh tranh nên tích lũy mua đc mấy miếng đất có nhà hơn 3 tỷ đó e<br>
 ;> bán thức ăn heo bò gà vịt đó e, xưa bả bán đắt mà ít ai cạnh tranh biết tiết kiệm nên giờ có của<br>
-;> tài xế xe tải chở thức ăn cho bả lương tháng 10 củ đó e, nghĩ 4 ngày chủ nhật
+;> tài xế xe tải chở thức ăn cho bả lương tháng 10 củ đó e, nghĩ 4 ngày chủ nhật<br>
+;> kinh doanh có thời thì có tiền thôi e
