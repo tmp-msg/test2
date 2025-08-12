@@ -5,4 +5,5 @@
 ;> phải lúc đó a giả vờ nạp 500k là có 150k ăn bánh ròi e<br>
 ;> chắc dụ đến mấy triệu xong block ý mà e<br>
 ;> hỏi chứ group việc làm gì có 6 người<br>
-;> mà lúc a đăng kí vô đúng ca1 =))
+;> mà lúc a đăng kí vô đúng ca1 =))<br>
+;> giả dạng cty uy tín lừa đảo, giờ cty e có 1 link là marvy.com đi thì nó sẽ làm cái web theo style cty của e lấy link là marvy.vietnam.com để lừa đảo =))
