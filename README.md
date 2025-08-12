@@ -32,4 +32,7 @@
 ;> bán thức ăn heo bò gà vịt đó e, xưa bả bán đắt mà ít ai cạnh tranh biết tiết kiệm nên giờ có của<br>
 ;> tài xế xe tải chở thức ăn cho bả lương tháng 10 củ đó e, nghĩ 4 ngày chủ nhật<br>
 ;> kinh doanh có thời thì có tiền thôi e<br>
-;> cho a trúng tờ vietlot vài chục tỉ vài trăm tỉ là đc đời ng chỉ có thế thôi
+;> cho a trúng tờ vietlot vài chục tỉ vài trăm tỉ là đc đời ng chỉ có thế thôi<br>
+;> hồi đó mẹ con e họ a khuyên nó ráng làm đi, xong a gửi mấy cái video làm 10 năm ròi nghỉ lương ít + bị lệch xương sống mẹ nó kêu nó nghỉ lun<br>
+;> ngồi sai tư thế nhìu quá bị<br>
+;> thôi thì giờ cố gắng tới đâu hay tới đó thôi e, chứ ảo tưởng là toang
