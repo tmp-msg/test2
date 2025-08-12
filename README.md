@@ -16,4 +16,5 @@
 ;> năm tủi còn ko xui bằng năm con mèo á<br>
 ;> cho nên là năm sau e coi chừng đó<br>
 ;> móa a ra trường năm 2023 là tam tai năm giửa xong năm thìn năm 2024 là đở xui hơn năm con mèo<br>
-;> giờ thì cũng đỡ so vs 3 năm trước
+;> giờ thì cũng đỡ so vs 3 năm trước<br>
+<img width="980" height="457" alt="image" src="https://github.com/user-attachments/assets/6f06d921-367a-4187-9336-c2487cec1259" /><br>
