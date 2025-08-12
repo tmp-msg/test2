@@ -10,4 +10,5 @@
 ;> link giới thiệu là cty của e nhưng link lừa đảo là của tụi nó<br>
 ;> chia sẻ bài của cty real lun mới ghê<br>
 ;> hỏi chứ việc làm nảo làm 5-10 phút ăn vài trăm nghàn, có làm đũy thôi e =)), bóp dú cái a cho 200k??<br>
-;> năm 2027 a có tiền là kết thúc 4 năm tủi trẻ chật vật, a ra trường năm 2023 mừ e
+;> năm 2027 a có tiền là kết thúc 4 năm tủi trẻ chật vật, a ra trường năm 2023 mừ e<br>
+;> e có tin bài tarot hem chứ a éo tin vì éo bao giờ a thấy nó đúng cả, có coi bói thì dúng ít đúng nhìu tùy người coi hay coi dở thôi e
