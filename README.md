@@ -9,4 +9,5 @@
 ;> giả dạng cty uy tín lừa đảo, giờ cty e có 1 link là marvy.com đi thì nó sẽ làm cái web theo style cty của e lấy link là marvy.vietnam.com để lừa đảo =))<br>
 ;> link giới thiệu là cty của e nhưng link lừa đảo là của tụi nó<br>
 ;> chia sẻ bài của cty real lun mới ghê<br>
-;> hỏi chứ việc làm nảo làm 5-10 phút ăn vài trăm nghàn, có làm đũy thôi e =)), bóp dú cái a cho 200k??
+;> hỏi chứ việc làm nảo làm 5-10 phút ăn vài trăm nghàn, có làm đũy thôi e =)), bóp dú cái a cho 200k??<br>
+;> năm 2027 a có tiền là kết thúc 4 năm tủi trẻ chật vật, a ra trường năm 2023 mừ e
