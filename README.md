@@ -28,4 +28,6 @@
 ;> chắc 1 ngày nó rinh gạo rinh thức ăn 25kg đổ lại thôi, ngày 500k<br>
 ;> mẹ nó thấy nó bệnh nên thương quá kêu nó nghỉ chứ bà đó dì a mà bả trùm sò lắm<br>
 ;> xưa bả bán bao thức ăn lời 2xk mà giờ lời ko biết đc 10k ko nữa mà giờ ngta cạnh tranh nửa<br>
-;> xưa thì bả bán ít ai cạnh tranh nên tích lũy mua đc mấy miếng đất có nhà hơn 3 tỷ đó e
+;> xưa thì bả bán ít ai cạnh tranh nên tích lũy mua đc mấy miếng đất có nhà hơn 3 tỷ đó e<br>
+;> bán thức ăn heo bò gà vịt đó e, xưa bả bán đắt mà ít ai cạnh tranh biết tiết kiệm nên giờ có của<br>
+;>
