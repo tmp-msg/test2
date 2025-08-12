@@ -14,4 +14,6 @@
 ;> ra trường gặp đúng năm tam tai nữa, xui vl lun, năm tam tai thứ 2 xui lắm á e<br>
 ;> a nhớ đâu năm con mèo a xui cực lun á<br>
 ;> năm tủi còn ko xui bằng năm con mèo á<br>
-;> cho nên là năm sau e coi chừng đó
+;> cho nên là năm sau e coi chừng đó<br>
+;> móa a ra trường năm 2023 là tam tai năm giửa xong năm thìn năm 2024 là đở xui hơn năm con mèo<br>
+;> giờ thì cũng đỡ so vs 3 năm trước
