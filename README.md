@@ -20,4 +20,5 @@
 <img width="980" height="457" alt="image" src="https://github.com/user-attachments/assets/6f06d921-367a-4187-9336-c2487cec1259" /><br>
 ;> e học cúng tam tai đi, mốt cúng cho a<br>
 ;> mình sống là mình phải nghĩ tới mình trước, dư giả ròi mới nghĩ tới ng khác đúng ko e<br>
-;> điển hình như e trả lương cao cho nhân viên ròi e phá sản ai cho e tiền đúng hem
+;> điển hình như e trả lương cao cho nhân viên ròi e phá sản ai cho e tiền đúng hem<br>
+;> mình nghĩ tới ngta ròi ai nghĩ tới mình đúng hem
