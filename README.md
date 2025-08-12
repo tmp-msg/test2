@@ -24,4 +24,5 @@
 ;> mình nghĩ tới ngta ròi ai nghĩ tới mình đúng hem<br>
 ;> năm sau e tránh làm việc quan trọng thôi e<br>
 <img width="999" height="1161" alt="image" src="https://github.com/user-attachments/assets/c0c34382-52f8-4dcb-bb9b-3a98cb8f297c" /><br>
-;> tts có ít triệu mà cũng nợ lương e
+;> tts có ít triệu mà cũng nợ lương e<br>
+;> có 1 triệu 1 tháng mà cũng nợ <img width="1478" height="922" alt="image" src="https://github.com/user-attachments/assets/80b91f2a-ac1f-49b7-97fd-1d1448571275" />
