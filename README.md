@@ -24,4 +24,5 @@
 ;> ngta có lợi thế con nhà giàu e<br>
 ;> bán đồ như là xúc thức ăn rinh bao thức ăn 25kg là cùng, ý là con gái ý nhen<br>
 ;> e ăn học đã e làm tay chân ngày nào cũng ôm vài bao thức ăn 25kg e chịu ko<br>
-;> bao gạo thì 50kg 2 người rinh
+;> bao gạo thì 50kg 2 người rinh<br>
+;> chắc 1 ngày nó rinh gạo rinh thức ăn 25kg đổ lại thôi, ngày 500k
