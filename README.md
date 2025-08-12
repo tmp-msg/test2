@@ -12,4 +12,6 @@
 ;> coi thì coi chứ éo ảo tưởng e<br>
 ;> chứ nào giờ ra trường xu cà na, làm nhìu cái fail lắm kìa e, trầy trật lắm<br>
 ;> ra trường gặp đúng năm tam tai nữa, xui vl lun, năm tam tai thứ 2 xui lắm á e<br>
-;> a nhớ đâu năm con mèo a xui cực lun á
+;> a nhớ đâu năm con mèo a xui cực lun á<br>
+;> năm tủi còn ko xui bằng năm con mèo á<br>
+;> cho nên là năm sau e coi chừng đó
