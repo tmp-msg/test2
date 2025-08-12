@@ -35,4 +35,5 @@
 ;> cho a trúng tờ vietlot vài chục tỉ vài trăm tỉ là đc đời ng chỉ có thế thôi<br>
 ;> hồi đó mẹ con e họ a khuyên nó ráng làm đi, xong a gửi mấy cái video làm 10 năm ròi nghỉ lương ít + bị lệch xương sống mẹ nó kêu nó nghỉ lun<br>
 ;> ngồi sai tư thế nhìu quá bị<br>
-;> thôi thì giờ cố gắng tới đâu hay tới đó thôi e, chứ ảo tưởng là toang
+;> thôi thì giờ cố gắng tới đâu hay tới đó thôi e, chứ ảo tưởng là toang<br>
+;> coi thì coi chứ éo ảo tưởng e
