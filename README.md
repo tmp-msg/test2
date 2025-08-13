@@ -4,4 +4,5 @@
 ;> từ cái gmail cty đó thôi nó soi ròi overthinking e =))<br>
 ;> ý a là từ cái thông tin cơ bản nó soi nó hack đc, nó xài tool bỏ tiền mua ko à e<br>
 ;> gần 50 vẫn nghèo là e hỉu<br>
-;> coi năm nay có thanh lọc nó ko e =)), ngta nói năm số 9 năm thanh lọc gì mà
+;> coi năm nay có thanh lọc nó ko e =)), ngta nói năm số 9 năm thanh lọc gì mà<br>
+;> biết sao mới thanh lọc đc nó ko phiền nữa ko e, đó là a kiếm đc nhìu tiền, nó ko phá ko làm gì đc thì rời đi
