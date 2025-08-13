@@ -16,4 +16,5 @@
 <img width="2208" height="952" alt="image" src="https://github.com/user-attachments/assets/2e2e1934-0373-4232-ad7f-34d59bd8cfb9" /><br>
 ;> xong ròi tạo nick khác clone lại vl thật e, lừa đảo tinh vi thật<br>
 ;> lừa 100% dụ nộp số tiền lớn làm để ăn lời, xong nó trả lại mình + tiền lời đó e =))<br>
-;> nộp 10 củ chắc lặn lun
+;> nộp 10 củ chắc lặn lun<br>
+;> e hiểu thế nào đồng cam cộng khổ e<br>
