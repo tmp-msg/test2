@@ -14,4 +14,6 @@
 ;> đứa đéo hôm qua a kể lừa đảo giờ xóa nick ròi e<br>
 <img width="465" height="345" alt="image" src="https://github.com/user-attachments/assets/569accbf-579a-4403-abca-dc5aa807f0e8" /><br>
 <img width="2208" height="952" alt="image" src="https://github.com/user-attachments/assets/2e2e1934-0373-4232-ad7f-34d59bd8cfb9" /><br>
-;> xong ròi tạo nick khác clone lại vl thật e, lừa đảo tinh vi thật
+;> xong ròi tạo nick khác clone lại vl thật e, lừa đảo tinh vi thật<br>
+;> lừa 100% dụ nộp số tiền lớn làm để ăn lời, xong nó trả lại mình + tiền lời đó e =))<br>
+;> nộp 10 củ chắc lặn lun
