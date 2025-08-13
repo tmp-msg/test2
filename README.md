@@ -18,3 +18,6 @@
 ;> lừa 100% dụ nộp số tiền lớn làm để ăn lời, xong nó trả lại mình + tiền lời đó e =))<br>
 ;> nộp 10 củ chắc lặn lun<br>
 ;> e hiểu thế nào đồng cam cộng khổ e<br>
+<img width="1234" height="645" alt="image" src="https://github.com/user-attachments/assets/f011a8ec-8986-40d2-8e5a-7dc75dd56afa" /><br>
+;> con lồn giò heo đeo e từ lúc a còn học tới lúc ra trường nó hô đồng cam cộng khổ vs a =))<br>
+=))) khùng mày chết mẹ tao nhờ
