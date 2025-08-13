@@ -8,4 +8,5 @@
 ;> biết sao mới thanh lọc đc nó ko phiền nữa ko e, đó là a kiếm đc nhìu tiền, nó ko phá ko làm gì đc thì rời đi<br>
 ;> nò cũng đang bị nghiệp quật khổ túng tiền các thứ ròi đó<br>
 ;> con nó nữa ở giá tới già cũng đc, nó ko có khả năng lo cho cưới vợ<br>
-;> nửa e đẻ a lau chem chém e hả
+;> nửa e đẻ a lau chem chém e hả<br>
+;> quen 2 năm là ở chung đc ròi do mình iu xa ko hẹn hò nhìu nên delay thôi e
