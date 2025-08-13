@@ -10,4 +10,6 @@
 ;> con nó nữa ở giá tới già cũng đc, nó ko có khả năng lo cho cưới vợ<br>
 ;> nửa e đẻ a lau chem chém e hả<br>
 ;> quen 2 năm là ở chung đc ròi do mình iu xa ko hẹn hò nhìu nên delay thôi e<br>
-;> a mới nghĩ tới lau chem chém cho e là thấy ngại ròi đó =))
+;> a mới nghĩ tới lau chem chém cho e là thấy ngại ròi đó =))<br>
+;> đứa đéo hôm qua a kể lừa đảo giờ xóa nick ròi e<br>
+<img width="465" height="345" alt="image" src="https://github.com/user-attachments/assets/569accbf-579a-4403-abca-dc5aa807f0e8" />
