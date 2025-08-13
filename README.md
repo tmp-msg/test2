@@ -20,4 +20,7 @@
 ;> e hiểu thế nào đồng cam cộng khổ e<br>
 <img width="1234" height="645" alt="image" src="https://github.com/user-attachments/assets/f011a8ec-8986-40d2-8e5a-7dc75dd56afa" /><br>
 ;> con lồn giò heo đeo e từ lúc a còn học tới lúc ra trường nó hô đồng cam cộng khổ vs a =))<br>
-=))) khùng mày chết mẹ tao nhờ
+=))) khùng mày chết mẹ tao nhờ<br>
+;> móa xin miếu đc xăm, hô ko đc chỗ này do ko phù hợp sẽ tìm đc chỗ khác tốt hơn<br>
+;> mà giờ éo thấy chỗ nào tốt <br>
+;> miếu éo hay e ơi
