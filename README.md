@@ -23,4 +23,6 @@
 =))) khùng mày chết mẹ tao nhờ<br>
 ;> móa xin miếu đc xăm, hô ko đc chỗ này do ko phù hợp sẽ tìm đc chỗ khác tốt hơn<br>
 ;> mà giờ éo thấy chỗ nào tốt <br>
-;> miếu éo hay e ơi
+;> miếu éo hay e ơi<br>
+;> e cũng đâu đồng cam cộng khổ vs a đâu<br>
+;> a vs e kiểu như ai làm nấy ăn cuộc sống ai nấy sống mà, dạng như đang tìm hỉu mà
