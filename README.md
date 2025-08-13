@@ -25,4 +25,5 @@
 ;> mà giờ éo thấy chỗ nào tốt <br>
 ;> miếu éo hay e ơi<br>
 ;> e cũng đâu đồng cam cộng khổ vs a đâu<br>
-;> a vs e kiểu như ai làm nấy ăn cuộc sống ai nấy sống mà, dạng như đang tìm hỉu mà
+;> a vs e kiểu như ai làm nấy ăn cuộc sống ai nấy sống mà, dạng như đang tìm hỉu mà<br>
+;> như a thấy là cặp đôi nghèo như con nhỏ mà ở chung vs thg nọ ăn cơm vs muối ớt, trứng vịt đó là đồng cam cộng khổ, hỉu hem
