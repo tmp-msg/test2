@@ -9,4 +9,5 @@
 ;> nò cũng đang bị nghiệp quật khổ túng tiền các thứ ròi đó<br>
 ;> con nó nữa ở giá tới già cũng đc, nó ko có khả năng lo cho cưới vợ<br>
 ;> nửa e đẻ a lau chem chém e hả<br>
-;> quen 2 năm là ở chung đc ròi do mình iu xa ko hẹn hò nhìu nên delay thôi e
+;> quen 2 năm là ở chung đc ròi do mình iu xa ko hẹn hò nhìu nên delay thôi e<br>
+;> a mới nghĩ tới lau chem chém cho e là thấy ngại ròi đó =))
