@@ -5,4 +5,6 @@
 ;> ý a là từ cái thông tin cơ bản nó soi nó hack đc, nó xài tool bỏ tiền mua ko à e<br>
 ;> gần 50 vẫn nghèo là e hỉu<br>
 ;> coi năm nay có thanh lọc nó ko e =)), ngta nói năm số 9 năm thanh lọc gì mà<br>
-;> biết sao mới thanh lọc đc nó ko phiền nữa ko e, đó là a kiếm đc nhìu tiền, nó ko phá ko làm gì đc thì rời đi
+;> biết sao mới thanh lọc đc nó ko phiền nữa ko e, đó là a kiếm đc nhìu tiền, nó ko phá ko làm gì đc thì rời đi<br>
+;> nò cũng đang bị nghiệp quật khổ túng tiền các thứ ròi đó<br>
+;> con nó nữa ở giá tới già cũng đc, nó ko có khả năng lo cho cưới vợ
