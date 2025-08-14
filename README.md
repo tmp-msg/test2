@@ -11,4 +11,5 @@
 ;> mua bộ bài xong trải ra nói xà lơ xà lửng<br>
 ;> a chưa bao giờ nghe ai mà coi bài tarot có tiếng ở chỗ a hết<br>
 ;> bài tarot sao coi đc nhà đó đã từng có bao nhiu người chet, bị gì chet đc <br>
-;> ví dụ cho nói bừa 3 người die đi thì hỏi mấy người già, người xưa ngta còn sống là ra trật lất hết
+;> ví dụ cho nói bừa 3 người die đi thì hỏi mấy người già, người xưa ngta còn sống là ra trật lất hết<br>
+;> coi trật lất hoài mất niềm tin éo ai coi nữa thật
