@@ -2,4 +2,6 @@
 ;> sắp ngủ chưa e<br>
 ;> a bận xíu nhe<br>
 ;> bài tarot a thấy éo đúng<br>
-;> coi thấy trật lất 100% lun e =))
+;> coi thấy trật lất 100% lun e =))<br>
+;> coi bói thì ng hay người dở coi trúng 50%->100%<br>
+;> còn coi bài tarot là nói chung chung auto trật lất 100%
