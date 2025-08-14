@@ -4,4 +4,5 @@
 ;> bài tarot a thấy éo đúng<br>
 ;> coi thấy trật lất 100% lun e =))<br>
 ;> coi bói thì ng hay người dở coi trúng 50%->100%<br>
-;> còn coi bài tarot là nói chung chung auto trật lất 100%
+;> còn coi bài tarot là nói chung chung auto trật lất 100%<br>
+;> éo phải trật bình thường nửa mà trật lất 100% =))
