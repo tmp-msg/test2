@@ -1,16 +1,1 @@
-;> a nhô e<br>
-;> sắp ngủ chưa e<br>
-;> a bận xíu nhe<br>
-;> bài tarot a thấy éo đúng<br>
-;> coi thấy trật lất 100% lun e =))<br>
-;> coi bói thì ng hay người dở coi trúng 50%->100%<br>
-;> còn coi bài tarot là nói chung chung auto trật lất 100%<br>
-;> éo phải trật bình thường nửa mà trật lất 100% =))<br>
-;> coi bài tarot hỏi nó nhà từng có nhiu ng chết, nhiu vong biết a cùi lun<br>
-;> bài tarot coi cơ chế sao e, hỏng lẽ 1 đứa ất ơ trải bài ra hình này hình nọ nói chung chung hầu như ai cũng có xong mình tin ??<br>
-;> mua bộ bài xong trải ra nói xà lơ xà lửng<br>
-;> a chưa bao giờ nghe ai mà coi bài tarot có tiếng ở chỗ a hết<br>
-;> bài tarot sao coi đc nhà đó đã từng có bao nhiu người chet, bị gì chet đc <br>
-;> ví dụ cho nói bừa 3 người die đi thì hỏi mấy người già, người xưa ngta còn sống là ra trật lất hết<br>
-;> coi trật lất hoài mất niềm tin éo ai coi nữa thật<br>
-;> còn 1.5 năm nữa coi có nhìu tiền ko e
+;> ngủ đi e
