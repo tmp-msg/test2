@@ -7,4 +7,5 @@
 ;> còn coi bài tarot là nói chung chung auto trật lất 100%<br>
 ;> éo phải trật bình thường nửa mà trật lất 100% =))<br>
 ;> coi bài tarot hỏi nó nhà từng có nhiu ng chết, nhiu vong biết a cùi lun<br>
-;> bài tarot coi cơ chế sao e, hỏng lẽ 1 đứa ất ơ trải bài ra hình này hình nọ nói chung chung hầu như ai cũng có xong mình tin ??
+;> bài tarot coi cơ chế sao e, hỏng lẽ 1 đứa ất ơ trải bài ra hình này hình nọ nói chung chung hầu như ai cũng có xong mình tin ??<br>
+;> mua bộ bài xong trải ra nói xà lơ xà lửng
