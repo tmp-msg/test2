@@ -9,4 +9,6 @@
 ;> coi bài tarot hỏi nó nhà từng có nhiu ng chết, nhiu vong biết a cùi lun<br>
 ;> bài tarot coi cơ chế sao e, hỏng lẽ 1 đứa ất ơ trải bài ra hình này hình nọ nói chung chung hầu như ai cũng có xong mình tin ??<br>
 ;> mua bộ bài xong trải ra nói xà lơ xà lửng<br>
-;> a chưa bao giờ nghe ai mà coi bài tarot có tiếng ở chỗ a hết
+;> a chưa bao giờ nghe ai mà coi bài tarot có tiếng ở chỗ a hết<br>
+;> bài tarot sao coi đc nhà đó đã từng có bao nhiu người chet, bị gì chet đc <br>
+;> ví dụ cho nói bừa 3 người die đi thì hỏi mấy người già, người xưa ngta còn sống là ra trật lất hết
