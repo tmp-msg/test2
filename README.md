@@ -5,4 +5,6 @@
 <img width="1261" height="1000" alt="image" src="https://github.com/user-attachments/assets/d6bb4967-0a9b-4925-975e-25cfe84c53b4" /><br>
 ;> mới làm chơi chơi cái chatbot AI nè e<br>
 <img width="746" height="767" alt="image" src="https://github.com/user-attachments/assets/f2c5393e-252f-41ff-a974-57088b272e86" /><br>
-;> làm như nó lưu lịch sử đợt trước hay sao ý e
+;> làm như nó lưu lịch sử đợt trước hay sao ý e<br>
+<img width="681" height="815" alt="image" src="https://github.com/user-attachments/assets/e27c5dde-3202-496c-8a72-b2b7710ceded" /><br>
+;> model này ko thông minh như chatgpt đâu e
