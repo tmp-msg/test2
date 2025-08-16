@@ -22,4 +22,8 @@
 ;> thì flutter là frontend còn phần server AI thì lấy link hoặc token gì đó của bên khác, kiểu z<br>
 ;> thôi ngủ ngon e<br>
 ;> nhìu ng thất nghiệp a thấy họ chỉ biết có học thôi, tại a thấy nhìu ng họ học z quài cũng thất nghiệp à<br>
-;> học nhìu chưa chắc giàu e ơi
+;> học nhìu chưa chắc giàu e ơi<br>
+;> nhìu người a tháy lảm IT đang ngon họ chảnh lắm<br>
+;> già ròi cũng thất nghiệp vs mua nhà mua xe đc<br>
+;> già phải chuyển nghề<br>
+;> nửa a kiếm nghề nào làm tới 60 tuổi thì thôi e
