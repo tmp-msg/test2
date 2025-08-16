@@ -1,4 +1,5 @@
 ;> nay e tròn hay gầy e<br>
 ;> e nhu cầu 1 tuần e mấy lần<br>
 ;> e chắc coi phim heo thường lắm<br>
-;> con giò heo fake e kìa
+;> con giò heo fake e kìa<br>
+;> để a tưởng e, a vồ về =))
