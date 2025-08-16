@@ -4,4 +4,5 @@
 ;> con giò heo fake e kìa<br>
 ;> để a tưởng e, a vồ về =))<br>
 ;> kiểu như con người bị thiếu thốn tình cảm lẫn tiền =))<br>
-;> cuộc sống e vẫn ổn chứ e, lâu hem gặp e nhớ a hem
+;> cuộc sống e vẫn ổn chứ e, lâu hem gặp e nhớ a hem<br>
+;> để coi sang năm mình gặp đc hem e
