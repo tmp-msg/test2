@@ -20,4 +20,6 @@
 ;> khuya gòi ngủ đi e<br>
 ;> cty cũ còn build chatbot bằng flutter hong biết sao, a cũng coi sơ gòi<br>
 ;> thì flutter là frontend còn phần server AI thì lấy link hoặc token gì đó của bên khác, kiểu z<br>
-;> thôi ngủ ngon e
+;> thôi ngủ ngon e<br>
+;> nhìu ng thất nghiệp a thấy họ chỉ biết có học thôi, tại a thấy nhìu ng họ học z quài cũng thất nghiệp à<br>
+;> học nhìu chưa chắc giàu e ơi
