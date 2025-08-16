@@ -6,4 +6,5 @@
 ;> kiểu như con người bị thiếu thốn tình cảm lẫn tiền =))<br>
 ;> cuộc sống e vẫn ổn chứ e, lâu hem gặp e nhớ a hem<br>
 ;> để coi sang năm mình gặp đc hem e<br>
-;> nhìn e biết chem chép múp ròi
+;> nhìn e biết chem chép múp ròi<br>
+;> nửa a nhào dù e như nhào bột z đó =))
