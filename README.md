@@ -17,4 +17,6 @@
 ;> a đổi model khác coi thông minh hơn ko e, mà nặng máy quá<br>
 ;> model AI chatbot ý, rảnh làm chơi<br>
 ;> build lâu thôi e<br>
-;> khuya gòi ngủ đi e
+;> khuya gòi ngủ đi e<br>
+;> cty cũ còn build chatbot bằng flutter hong biết sao, a cũng coi sơ gòi<br>
+;> thì flutter là frontend còn phần server AI thì lấy link hoặc token gì đó của bên khác, kiểu z
