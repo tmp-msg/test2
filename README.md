@@ -7,4 +7,5 @@
 ;> cuộc sống e vẫn ổn chứ e, lâu hem gặp e nhớ a hem<br>
 ;> để coi sang năm mình gặp đc hem e<br>
 ;> nhìn e biết chem chép múp ròi<br>
-;> nửa a nhào dù e như nhào bột z đó =))
+;> nửa a nhào dù e như nhào bột z đó =))<br>
+;> ở vs a là a vui thì a cho chem chép ướt a bùn cho chem chép khô
