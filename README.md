@@ -1,1 +1,1 @@
-;> thôi khuya gòi ngủ đi e, ngủ ngon e
+;> a nhô e ghệ dú to
