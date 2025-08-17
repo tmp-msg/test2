@@ -1,3 +1,4 @@
 ;> a nhô e<br>
 ;> nay chồng bệnh chồng mệt quá ngủ quên e<br>
-;> giờ bùn ngủ ròi e,thôi e ngủ đi mai hết bệnh a nhắn e
+;> giờ bùn ngủ ròi e,thôi e ngủ đi mai hết bệnh a nhắn e<br>
+;> uống thuốc đỡ nhưng còn mệt e, giờ bùn ngủ
