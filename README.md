@@ -5,4 +5,5 @@
 ;> để nó phải tự nuôi con, tự xoay tiền mà nó có bỏ đâu<br>
 ;> thời buổi giờ a thấy làm gì có nhìu tiền là đc e<br>
 ;> đương nhiên là hợp pháp ròi e<br>
-;> éo thể trẻ hoài để làm mướn ròi OT hoài đc
+;> éo thể trẻ hoài để làm mướn ròi OT hoài đc<br>
+;> nhìu khi a cũng éo quan tâm còn giò heo lắm mà nó làm khùng làm điên ảo tưởng quá mới nói thôi
