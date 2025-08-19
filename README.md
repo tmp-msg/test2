@@ -4,4 +4,5 @@
 ;> iu gần để e dễ đụ hay gì e<br>
 ;> thèm ngủ chung hay gì e<br>
 ;> trên mạng cho số đề đặng mình bán nhà ý e<br>
-;> 
+;> <img width="2082" height="1168" alt="image" src="https://github.com/user-attachments/assets/646962d2-d780-4845-9c4b-0802de56db7d" /><br>
+;> nảy giở đang nghịch cái này e
