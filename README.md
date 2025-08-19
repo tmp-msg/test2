@@ -9,4 +9,6 @@
 ;> e mún cuối năm nay làm gì e, dọn về ở chung hả<br>
 ;> e biết làm mồi nhậu gì e<br>
 ;> e iu xa e sợ mất bồ =))<br>
-;> làm khô đi e, khô vs gỏi
+;> làm khô đi e, khô vs gỏi<br>
+<img width="684" height="859" alt="image" src="https://github.com/user-attachments/assets/91cdf0a8-4889-4652-8121-81542a18c5c7" /><br>
+;> đang test nè e
