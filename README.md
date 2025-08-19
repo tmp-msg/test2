@@ -8,4 +8,5 @@
 ;> nảy giở đang nghịch cái này e<br>
 ;> e mún cuối năm nay làm gì e, dọn về ở chung hả<br>
 ;> e biết làm mồi nhậu gì e<br>
-;> e iu xa e sợ mất bồ =))
+;> e iu xa e sợ mất bồ =))<br>
+;> làm khô đi e, khô vs gỏi
