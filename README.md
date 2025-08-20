@@ -7,4 +7,4 @@
 ;> ăn thua cái khúc mà vô làm dự án đc hay ko<br>
 ;> nổ vài năm mà vô cõng cả dự án, bug ko fix đc, làm gì cũng ko biết là mệt<br>
 ;> giờ a kiếm đứa nào share bài tarot chặn hết =))<br>
-;> éo biết năm 2027 làm qq gì a có nhìu tiền nữa, mà nhìu là nhiu
+;> éo biết năm 2027 làm qq gì a có nhìu tiền nữa, mà nhìu là nhiu, giờ đang mạc
