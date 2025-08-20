@@ -14,4 +14,5 @@
 ;> chứ éo thấy cơ sở nào có nhìu tiền cả e<br>
 ;> a thấy mấy cái model AI này có cty tuyển e, mà ko biết họ làm thực tế như nào thôi, tại vì ko có lấy token nên down về mấy đc cái 0 tốn tiền<br>
 ;> <img width="751" height="551" alt="image" src="https://github.com/user-attachments/assets/ccaaee4b-ad97-4bff-9b96-889e4f8e76f5" /><br>
-;> a làm dự án mini thôi
+;> a làm dự án mini thôi<br>
+;> a làm dạng thử nghiệm thôi
