@@ -11,4 +11,5 @@
 ;> sau nhìu lần đổi model thì quay lại dùng model cũ e =))<br>
 ;> cấu hình laptop éo đủ, model chậm, ròi thư viện ko hỗ trợ,...<br>
 ;> năm 2027 a mà có nhìu tiền là bà thầy bói này bói hay vãi đái chứ ko phải bói hay bth đâu e<br>
-;> chứ éo thấy cơ sở nào có nhìu tiền cả e
+;> chứ éo thấy cơ sở nào có nhìu tiền cả e<br>
+;> a thấy mấy cái model AI này có cty tuyển e, mà ko biết họ làm thực tế như nào thôi, tại vì ko có lấy token nên down về mấy đc cái 0 tốn tiền
