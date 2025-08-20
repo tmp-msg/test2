@@ -22,4 +22,5 @@
 ;> năm 2027 kiếm cao lắm mà nó hợp lý là đc 20 củ là cùng e, đâu mà nhìu tiền e<br>
 ;> a thì sở thích ăn uống a nhìu lắm, nào là gà nướng, cháo ếch, hải sản, đồ nướng lẩu, ốc,...<br>
 ;> hẹn hò thì chắc dắt e ăn ốc hoặc mua con gà nướng ăn cho ròi<br>
-;> con lồn già giả dạng e để a nhắn tin cho nó, a đâu có ngu
+;> con lồn già giả dạng e để a nhắn tin cho nó, a đâu có ngu<br>
+;> nó vs a ko có hợp tính sáp lại là quýnh lộn á
