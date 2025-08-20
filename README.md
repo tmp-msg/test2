@@ -18,4 +18,5 @@
 ;> a làm dạng thử nghiệm thôi<br>
 ;> nào sinh nhật e e<br>
 ;> a giờ 2x tuổi ít tiền bùn quá<br>
-;> sau này có e làm ô sin cho a cũng đc =))
+;> sau này có e làm ô sin cho a cũng đc =))<br>
+;> năm 2027 kiếm cao lắm mà nó hợp lý là đc 20 củ là cùng e, đâu mà nhìu tiền e
