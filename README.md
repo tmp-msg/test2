@@ -6,5 +6,6 @@
 ;> oke chứ e<br>
 <img width="813" height="1252" alt="image" src="https://github.com/user-attachments/assets/b5b7125a-f710-4bcf-8d05-d2706690d347" /><br>
 ;> iu xa e bùn hả, đợi quài hả<br>
-;> tại vì cuộc đời a trầy trật nên e phải đợi chờ
-
+;> tại vì cuộc đời a trầy trật nên e phải đợi chờ<br>
+;> thôi đợi đi e, vs cúng sao tam tai đi<br>
+;> a ngủ à
