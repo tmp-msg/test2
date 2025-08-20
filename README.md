@@ -28,4 +28,5 @@
 ;> a cung kim ngưu đi là nhưng đứa cung kim ngưu là a sẽ dị ứng<br>
 ;> trai gái gì đều dị ứng hết<br>
 ;> ghét nói chuyện ko thấy hợp<br>
-;> nghe lâu gặp a e o vui à
+;> nghe lâu gặp a e o vui à<br>
+;> con nào cướp của e đc<br>
