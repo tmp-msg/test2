@@ -17,4 +17,5 @@
 ;> a làm dự án mini thôi<br>
 ;> a làm dạng thử nghiệm thôi<br>
 ;> nào sinh nhật e e<br>
-;> a giờ 2x tuổi ít tiền bùn quá
+;> a giờ 2x tuổi ít tiền bùn quá<br>
+;> sau này có e làm ô sin cho a cũng đc =))
