@@ -23,4 +23,5 @@
 ;> a thì sở thích ăn uống a nhìu lắm, nào là gà nướng, cháo ếch, hải sản, đồ nướng lẩu, ốc,...<br>
 ;> hẹn hò thì chắc dắt e ăn ốc hoặc mua con gà nướng ăn cho ròi<br>
 ;> con lồn già giả dạng e để a nhắn tin cho nó, a đâu có ngu<br>
-;> nó vs a ko có hợp tính sáp lại là quýnh lộn á
+;> nó vs a ko có hợp tính sáp lại là quýnh lộn á<br>
+;> nó giống tính con nhỏ gì xưa a học đại học ở ghép chung, a ko thích tính nhỏ đó mà nhỏ đó cũng ko thích tính a, kiểu nói chuyện nghe gai gai ko thích kiểu gì ý
