@@ -12,4 +12,6 @@
 ;> cấu hình laptop éo đủ, model chậm, ròi thư viện ko hỗ trợ,...<br>
 ;> năm 2027 a mà có nhìu tiền là bà thầy bói này bói hay vãi đái chứ ko phải bói hay bth đâu e<br>
 ;> chứ éo thấy cơ sở nào có nhìu tiền cả e<br>
-;> a thấy mấy cái model AI này có cty tuyển e, mà ko biết họ làm thực tế như nào thôi, tại vì ko có lấy token nên down về mấy đc cái 0 tốn tiền
+;> a thấy mấy cái model AI này có cty tuyển e, mà ko biết họ làm thực tế như nào thôi, tại vì ko có lấy token nên down về mấy đc cái 0 tốn tiền<br>
+;> <img width="751" height="551" alt="image" src="https://github.com/user-attachments/assets/ccaaee4b-ad97-4bff-9b96-889e4f8e76f5" /><br>
+;> a làm dự án mini thôi
