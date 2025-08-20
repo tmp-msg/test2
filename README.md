@@ -16,4 +16,5 @@
 ;> <img width="751" height="551" alt="image" src="https://github.com/user-attachments/assets/ccaaee4b-ad97-4bff-9b96-889e4f8e76f5" /><br>
 ;> a làm dự án mini thôi<br>
 ;> a làm dạng thử nghiệm thôi<br>
-;> nào sinh nhật e e
+;> nào sinh nhật e e<br>
+;> a giờ 2x tuổi ít tiền bùn quá
