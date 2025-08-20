@@ -30,3 +30,8 @@
 ;> ghét nói chuyện ko thấy hợp<br>
 ;> nghe lâu gặp a e o vui à<br>
 ;> con nào cướp của e đc<br>
+<img width="2544" height="1342" alt="image" src="https://github.com/user-attachments/assets/62f5883e-6acc-4c1a-a673-7da183928975" /><br>
+;> <img width="803" height="803" alt="image" src="https://github.com/user-attachments/assets/4629c9f1-c7bc-4a37-b586-5d535034748a" /><br>
+;> test 2 câu thấy oke đó chứ e
+
+
