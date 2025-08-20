@@ -8,4 +8,7 @@
 ;> nổ vài năm mà vô cõng cả dự án, bug ko fix đc, làm gì cũng ko biết là mệt<br>
 ;> giờ a kiếm đứa nào share bài tarot chặn hết =))<br>
 ;> éo biết năm 2027 làm qq gì a có nhìu tiền nữa, mà nhìu là nhiu, giờ đang mạc<br>
-;> sau nhìu lần đổi model thì quay lại dùng model cũ e =))
+;> sau nhìu lần đổi model thì quay lại dùng model cũ e =))<br>
+;> cấu hình laptop éo đủ, model chậm, ròi thư viện ko hỗ trợ,...<br>
+;> năm 2027 a mà có nhìu tiền là bà thầy bói này bói hay vãi đái chứ ko phải bói hay bth đâu e<br>
+;> chứ éo thấy cơ sở nào có nhìu tiền cả e
