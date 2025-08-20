@@ -24,4 +24,4 @@
 ;> hẹn hò thì chắc dắt e ăn ốc hoặc mua con gà nướng ăn cho ròi<br>
 ;> con lồn già giả dạng e để a nhắn tin cho nó, a đâu có ngu<br>
 ;> nó vs a ko có hợp tính sáp lại là quýnh lộn á<br>
-;> nó giống tính con nhỏ gì xưa a học đại học ở ghép chung, a ko thích tính nhỏ đó mà nhỏ đó cũng ko thích tính a, kiểu nói chuyện nghe gai gai ko thích kiểu gì ý
+;> nó giống tính con nhỏ gì xưa a học đại học ở ghép chung, a ko thích tính nhỏ đó mà nhỏ đó cũng ko thích tính a, kiểu nói chuyện nghe gai gai ko thích kiểu gì ý, dù a vs nó éo có xích mích hay đụng chạm gì nhau nhưng mà nói chuyện thì ko thích tính nhau, z đó
