@@ -20,4 +20,5 @@
 ;> chắc có push code lên github thì a ẩn code bớt =)), ai làm sẵn cho mà ăn bao giờ<br>
 ;> a đang làm cái chatbot RAG tương tự như dự án cty của thg cha dũng á, mà đợt cty ổng chưa có làm xong<br>
 ;> làm thg cha đó thấy ăn cắp ý tưởng làm là lòi lòn, ko có ơn nghĩa gì hết<br>
-;> a đâu có rảnh mà mò code xong cho ng khác hưởng đâu e, làm đẹp CV là chính thôi
+;> a đâu có rảnh mà mò code xong cho ng khác hưởng đâu e, làm đẹp CV là chính thôi<br>
+;> show code ròi tụi lòn đó mò làm theo thì toang
