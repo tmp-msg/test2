@@ -10,4 +10,6 @@
 ;> ko tiền mới khổ thôi chứ ko khổ vì gì hết<br>
 ;> có tiền cái đi chơi, đi du lịch cái yêu đời liền à<br>
 ;> con mẹ lồn già nnay nó gần 50 tuổi rồi vẫn nghèo, lại sắp nghỉ hưu, còn nuôi 2 con ăn học, lo cho tới lúc có vợ nữa chắc nó khổ tới lúc 2 thg con nó cưới vợ thôi, con người khổ nghèo từ lúc đẻ ra tới lúc ngáp ngáp<br>
-;> z mà nó còn ảo tưởng bản thân giàu, 50 tuổi mà đéo có gì là rõ như ban ngày ròi
+;> z mà nó còn ảo tưởng bản thân giàu, 50 tuổi mà đéo có gì là rõ như ban ngày ròi<br>
+;> làm như ai cũng đc như ông già KFC khởi nghiệp tuổi già ròi chết, hưởng thụ đc nhiu năm<br>
+;> gần 50 làm hơn 5 năm nữa nghỉ hưu mịa ròi =))
