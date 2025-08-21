@@ -35,4 +35,5 @@
 ;> a vs nó tuổi mẹ con chứ tuổi bạn bè, tri kỉ, nyc qq gì e =))))<br>
 ;> phải nó giàu a giả bộ cặp nó moi tiền ăn xài, nó nghèo chet mẹ lấy qq gì mà moi tiền =))))<br>
 ;> giờ chứ e nghĩ 1 thg quen 1 bà cỡ tuổi mẹ nó thì e nghỉ quen vì tình yêu hay vì tiền<br>
-;> nó có chồng mà nó mê lồn nghĩ cũng lạ hen e =)))
+;> nó có chồng mà nó mê lồn nghĩ cũng lạ hen e =)))<br>
+;> rồi tối ngủ chung trả bài sao, chồng mò lồn thì sao
