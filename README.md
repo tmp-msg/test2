@@ -27,4 +27,5 @@
 ;> ai có con vợ như con giò heo cũng khổ á e, nó vừa ngu nghĩ cạn mà vừa ích kỉ nữa<br>
 ;> a vs nó đâu ưa nhau nào giờ mà nó cứ soi mói cuộc sống của a, ảo tưởng là bận thân, tri kỉ, nyc của a =)), nghe bùn cười e nhễ =)))<br>
 ;> nó hơn a 20 tuổi đẻ ra đc a lun á =)))<br>
-;> xưa a cúp học môn của nó xong nó đứng cầm dù ngoài xe buýt nhìn a =))
+;> xưa a cúp học môn của nó xong nó đứng cầm dù ngoài xe buýt nhìn a =))<br>
+;> a cúp môn của nó a đâu có nhớ mặt nó đâu đi lúc đó có học buổi nào
