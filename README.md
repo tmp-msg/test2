@@ -15,4 +15,5 @@
 ;> gần 50 làm hơn 5 năm nữa nghỉ hưu mịa ròi =))<br>
 ;> nó thích sống ổn định, bình yên đó e hỉu hem<br>
 ;> thành ra nó học xong đu lên Ths xin 1 chân làm nhà nước tới giờ nên nghèo đó<br>
-;> con người mà thích ổn định, bình yên khi còn trẻ, e nhắm làm gì giàu, làm công ăn lương tháng lãnh 1 cục tiền nhỏ, có chồng con vs nó z là đủ
+;> con người mà thích ổn định, bình yên khi còn trẻ, e nhắm làm gì giàu, làm công ăn lương tháng lãnh 1 cục tiền nhỏ, có chồng con vs nó z là đủ<br>
+;> làm remote trên mấy cái group fb a thấy chủ yếu là lừa đảo 
