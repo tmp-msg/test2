@@ -28,4 +28,5 @@
 ;> a vs nó đâu ưa nhau nào giờ mà nó cứ soi mói cuộc sống của a, ảo tưởng là bận thân, tri kỉ, nyc của a =)), nghe bùn cười e nhễ =)))<br>
 ;> nó hơn a 20 tuổi đẻ ra đc a lun á =)))<br>
 ;> xưa a cúp học môn của nó xong nó đứng cầm dù ngoài xe buýt nhìn a =))<br>
-;> a cúp môn của nó a đâu có nhớ mặt nó đâu đi lúc đó có học buổi nào
+;> a cúp môn của nó a đâu có nhớ mặt nó đâu đi lúc đó có học buổi nào<br>
+;> nhìn mặt nó ở ngoài già vs đen lắm e =))
