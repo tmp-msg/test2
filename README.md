@@ -32,4 +32,5 @@
 ;> nhìn mặt nó ở ngoài già vs đen lắm e =))<br>
 ;> người thì đầu xoăn, lùn, giò ngắn, dú lép, bận đồ thì già, nó xấu z chứ gu ny nó là phải đẹp<br>
 ;> đợt a nhớ chồng nó đèo nó bằng con xe tay ga đi đâu á<br>
-;> a vs nó tuổi mẹ con chứ tuổi bạn bè, tri kỉ, nyc qq gì e =))))
+;> a vs nó tuổi mẹ con chứ tuổi bạn bè, tri kỉ, nyc qq gì e =))))<br>
+;> phải nó giàu a giả bộ cặp nó moi tiền ăn xài, nó nghèo chet mẹ lấy qq gì mà moi tiền =))))<br>
