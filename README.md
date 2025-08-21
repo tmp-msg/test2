@@ -39,4 +39,5 @@
 ;> rồi tối ngủ chung trả bài sao, chồng mò lồn thì sao<br>
 ;> nghĩ tới ngủ chung vs 1 người đéo có tình cảm, để ngta mò lòn, bóp nắn mình chịch có con thì sao<br>
 ;> cuộc đời giày vò<br>
-;> vợ chồng nó ngủ chung chịch nhau trong căn trọ có 1 bụm
+;> vợ chồng nó ngủ chung chịch nhau trong căn trọ có 1 bụm<br>
+;> thấy a vạch trần cuộc sống của nó giờ chắc nó núp trong góc nào đó tiêu cực, khóc ròi
