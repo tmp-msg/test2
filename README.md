@@ -21,4 +21,5 @@
 ;> a đang làm cái chatbot RAG tương tự như dự án cty của thg cha dũng á, mà đợt cty ổng chưa có làm xong<br>
 ;> làm thg cha đó thấy ăn cắp ý tưởng làm là lòi lòn, ko có ơn nghĩa gì hết<br>
 ;> a đâu có rảnh mà mò code xong cho ng khác hưởng đâu e, làm đẹp CV là chính thôi<br>
-;> show code ròi tụi lòn đó mò làm theo thì toang
+;> show code ròi tụi lòn đó mò làm theo thì toang<br>
+;> cho 0 ng khác mà cho nhìu á ngta sẽ xem đó là sự hiển nhiên đó là việc mình phải làm éo có mang ơn hay giúp ích gì mình đâu e
