@@ -24,4 +24,5 @@
 ;> show code ròi tụi lòn đó mò làm theo thì toang<br>
 ;> cho 0 ng khác mà cho nhìu á ngta sẽ xem đó là sự hiển nhiên đó là việc mình phải làm éo có mang ơn hay giúp ích gì mình đâu e<br>
 ;> cho nên là những cái mà đặc biệt quá thì a sẽ giấu<br>
-;> ai có con vợ như con giò heo cũng khổ á e, nó vừa ngu nghĩ cạn mà vừa ích kỉ nữa
+;> ai có con vợ như con giò heo cũng khổ á e, nó vừa ngu nghĩ cạn mà vừa ích kỉ nữa<br>
+;> a vs nó đâu ưa nhau nào giờ mà nó cứ soi mói cuộc sống của a, ảo tưởng là bận thân, tri kỉ, nyc của a =)), nghe bùn cười e nhễ =)))
