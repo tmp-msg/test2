@@ -23,4 +23,5 @@
 ;> a đâu có rảnh mà mò code xong cho ng khác hưởng đâu e, làm đẹp CV là chính thôi<br>
 ;> show code ròi tụi lòn đó mò làm theo thì toang<br>
 ;> cho 0 ng khác mà cho nhìu á ngta sẽ xem đó là sự hiển nhiên đó là việc mình phải làm éo có mang ơn hay giúp ích gì mình đâu e<br>
-;> cho nên là những cái mà đặc biệt quá thì a sẽ giấu
+;> cho nên là những cái mà đặc biệt quá thì a sẽ giấu<br>
+;> 
