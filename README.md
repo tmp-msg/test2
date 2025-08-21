@@ -43,4 +43,5 @@
 ;> thấy a vạch trần cuộc sống của nó giờ chắc nó núp trong góc nào đó tiêu cực, khóc ròi<br>
 ;> lúc nó mắc nợ nó khổ nó lên mạng đăng hình chó mèo bị nhốt để xin tiền<br>
 <img width="1146" height="1088" alt="image" src="https://github.com/user-attachments/assets/13aead00-4296-4853-bcdd-04110e592027" /><br>
-;> con giò heo đó ưng ông này có ngay 1 tỏi khỏi lên mạng moi tiền, xin xỏ nữa
+;> con giò heo đó ưng ông này có ngay 1 tỏi khỏi lên mạng moi tiền, xin xỏ nữa<br>
+;> mốt e mún a vs e ở trong căn trọ 1 bụm lồn ròi chịch nhau trong đó hem
