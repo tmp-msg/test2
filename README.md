@@ -17,4 +17,5 @@
 ;> thành ra nó học xong đu lên Ths xin 1 chân làm nhà nước tới giờ nên nghèo đó<br>
 ;> con người mà thích ổn định, bình yên khi còn trẻ, e nhắm làm gì giàu, làm công ăn lương tháng lãnh 1 cục tiền nhỏ, có chồng con vs nó z là đủ<br>
 ;> làm remote trên mấy cái group fb a thấy chủ yếu là lừa đảo <br>
-;> chắc có push code lên github thì a ẩn code bớt =)), ai làm sẵn cho mà ăn bao giờ
+;> chắc có push code lên github thì a ẩn code bớt =)), ai làm sẵn cho mà ăn bao giờ<br>
+;> a đang làm cái chatbot RAG tương tự như dự án cty của thg cha dũng á, mà đợt cty ổng chưa có làm xong
