@@ -30,4 +30,6 @@
 ;> xưa a cúp học môn của nó xong nó đứng cầm dù ngoài xe buýt nhìn a =))<br>
 ;> a cúp môn của nó a đâu có nhớ mặt nó đâu đi lúc đó có học buổi nào<br>
 ;> nhìn mặt nó ở ngoài già vs đen lắm e =))<br>
-;> người thì đầu xoăn, lùn, giò ngắn, dú lép, bận đồ thì già, nó xấu z chứ gu ny nó là phải đẹp
+;> người thì đầu xoăn, lùn, giò ngắn, dú lép, bận đồ thì già, nó xấu z chứ gu ny nó là phải đẹp<br>
+;> đợt a nhớ chồng nó đèo nó bằng con xe tay ga đi đâu á<br>
+;> a vs nó tuổi mẹ con chứ tuổi bạn bè, tri kỉ, nyc qq gì e =))))
