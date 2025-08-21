@@ -7,4 +7,7 @@
 ;> móa nó khùng hay gì á e<br>
 ;> sống từ lúc đẻ ra tới lúc chết là lâu lắm nếu éo có tiền khổ 70năm =))<br>
 ;> kiểu như mấy đứa nghèo, ko lối thoát, ròi nó đầu độc tư tưởng đầu độc xã hội để ngta như nó ý e<br>
-;> ko tiền mới khổ thôi chứ ko khổ vì gì hết
+;> ko tiền mới khổ thôi chứ ko khổ vì gì hết<br>
+;> có tiền cái đi chơi, đi du lịch cái yêu đời liền à<br>
+;> con mẹ lồn già nnay nó gần 50 tuổi rồi vẫn nghèo, lại sắp nghỉ hưu, còn nuôi 2 con ăn học, lo cho tới lúc có vợ nữa chắc nó khổ tới lúc 2 thg con nó cưới vợ thôi, con người khổ nghèo từ lúc đẻ ra tới lúc ngáp ngáp<br>
+;> z mà nó còn ảo tưởng bản thân giàu, 50 tuổi mà đéo có gì là rõ như ban ngày ròi
