@@ -44,4 +44,5 @@
 ;> ko ai mà tính khùng khùng tửng tửng như nó hết e, có mình con lồn già này bị kẹt ở năm 2018, còn ngta đang ở 2025 =))<br>
 ;> nó sống ở năm 2018 e<br>
 ;> nó đeo cùng lắm 10 năm nửa thôi chứ ko lẽ đeo tới khi a chết ha e<br>
-;> a có tiền là nó trù a chết mỗi ngày lun á
+;> a có tiền là nó trù a chết mỗi ngày lun á<br>
+;> nó dai te hén e, người gì chèm nhèm dai te hen e
