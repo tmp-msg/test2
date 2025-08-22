@@ -31,4 +31,6 @@
 =))) khùng thì chết mẹ sống chật đất<br>
 ;> ai chứ a có tiền nó trù a chết sớm, đợt a làm chỗ nọ nó trù quài á e<br>
 ;> sống đéo có đức bởi khổ<br>
-;> a đi coi bói nhìu ng coi hay ròi éo ai nói a chet sớm hết, đéo bị tai nạn xe gì hết, mà nào giờ chưa bị xe tông xe quẹt bao giờ e
+;> a đi coi bói nhìu ng coi hay ròi éo ai nói a chet sớm hết, đéo bị tai nạn xe gì hết, mà nào giờ chưa bị xe tông xe quẹt bao giờ e<br>
+;> ganh tị tới độ mà mất ngủ trù ai bị chết sớm quài chứ gì e<br>
+;> hỏi chứ con người z đức để đâu
