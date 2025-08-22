@@ -34,4 +34,6 @@
 ;> a đi coi bói nhìu ng coi hay ròi éo ai nói a chet sớm hết, đéo bị tai nạn xe gì hết, mà nào giờ chưa bị xe tông xe quẹt bao giờ e<br>
 ;> ganh tị tới độ mà mất ngủ trù ai bị chết sớm quài chứ gì e<br>
 ;> hỏi chứ con người z đức để đâu<br>
-;> tự dưng nó đeo theo a từ năm 2018 tới giờ, có tiền trù chết sớm, giàu ròi mạc lại
+;> tự dưng nó đeo theo a từ năm 2018 tới giờ, có tiền trù chết sớm, giàu ròi mạc lại<br>
+;> đéo ai làm gì nó lun á, ai chưa bao giờ xưng a e gì vs nó lun á<br>
+;> 
