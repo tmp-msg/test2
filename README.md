@@ -14,4 +14,5 @@
 ;> nữa a cũng mún đi du lịch vs e du lịch phú quốc, hạ long, nhật bản,...<br>
 ;> đẩy code lên ẩn model ẩn code phần AI =)))), a cho tự mò, có tiền bạc qq gì đâu mà chỉ<br>
 ;> ngủ đi e chồng bùn ngủ quá à<br>
-;> bùn ngủ nhưng chưa ngủ e
+;> bùn ngủ nhưng chưa ngủ e<br>
+;> nào có tiền đẻ 1 đứa e 
