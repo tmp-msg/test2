@@ -15,4 +15,5 @@
 ;> đẩy code lên ẩn model ẩn code phần AI =)))), a cho tự mò, có tiền bạc qq gì đâu mà chỉ<br>
 ;> ngủ đi e chồng bùn ngủ quá à<br>
 ;> bùn ngủ nhưng chưa ngủ e<br>
-;> nào có tiền đẻ 1 đứa e 
+;> nào có tiền đẻ 1 đứa e <br>
+;> từ 33-35 thì đẹp e
