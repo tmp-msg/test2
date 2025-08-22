@@ -10,4 +10,5 @@
 ;> bịp 100% hoặc spam nhìu may ra trúng vs mình thôi<br>
 ;> coi bói mà coi online là hỏi xem ông bà cha mẹ mình éo ai tin hết á e<br>
 ;> coi bói real là gặp người éo hay là chỉ đúng 60-70% thôi nữa, coi online là éo trung 100%<br>
-;> đang làm gì á e
+;> đang làm gì á e<br>
+;> nữa a cũng mún đi du lịch vs e du lịch phú quốc, hạ long, nhật bản,...
