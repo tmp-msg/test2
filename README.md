@@ -28,4 +28,7 @@
 ;> về nhảm vs chồng con nó dí chạy đéo kịp<br>
 ;> tối a hay uống trà nên thành ra khó ngủ, mốt éo uống nửa<br>
 ;> nó xạo lồn ai mà tin đâu có hồi nó hô biểu hiện của người ngu dễ tin người =)))<br>
-=))) khùng thì chết mẹ sống chật đất
+=))) khùng thì chết mẹ sống chật đất<br>
+;> ai chứ a có tiền nó trù a chết sớm, đợt a làm chỗ nọ nó trù quài á e<br>
+;> sống đéo có đức bởi khổ<br>
+;> a đi coi bói nhìu ng coi hay ròi éo ai nói a chet sớm hết, đéo bị tai nạn xe gì hết, mà nào giờ chưa bị xe tông xe quẹt bao giờ e
