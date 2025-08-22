@@ -12,4 +12,4 @@
 ;> coi bói real là gặp người éo hay là chỉ đúng 60-70% thôi nữa, coi online là éo trung 100%<br>
 ;> đang làm gì á e<br>
 ;> nữa a cũng mún đi du lịch vs e du lịch phú quốc, hạ long, nhật bản,...<br>
-;> đẩy code lên ẩn model ẩn code phần AI =)))), a cho tự mò, có tiền bạc qq gì đâu mà chỉ
+;> đẩy code lên ẩn model ẩn code phần AI =)))), a cho tự mò, có tiền bạc qq gì đâu mà chỉ<br>
