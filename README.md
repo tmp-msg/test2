@@ -16,4 +16,5 @@
 ;> ngủ đi e chồng bùn ngủ quá à<br>
 ;> bùn ngủ nhưng chưa ngủ e<br>
 ;> nào có tiền đẻ 1 đứa e <br>
-;> từ 33-35 thì đẹp e
+;> từ 33-35 thì đẹp e<br>
+;> con giò heo xạo lồn đéo ai tin mà nói quài e
