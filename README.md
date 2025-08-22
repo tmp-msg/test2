@@ -24,4 +24,5 @@
 ;> nó tự lảm nhảm tự tưởng tượng xong overthinking, ngày nào nó cũng z hết e =)))<br>
 ;> sống z mệt đầu đéo giải quyết đc gì<br>
 ;> nó ráng cho hết kiếp người rồi đi đầu thai đi chứ sống nghĩ nhìu mệt đầu<br>
-;>
+;> già ròi hay nhảm <br>
+;> về nhảm vs chồng con nó dí chạy đéo kịp
