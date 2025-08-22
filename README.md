@@ -37,4 +37,5 @@
 ;> tự dưng nó đeo theo a từ năm 2018 tới giờ, có tiền trù chết sớm, giàu ròi mạc lại<br>
 ;> đéo ai làm gì nó lun á, ai chưa bao giờ xưng a e gì vs nó lun á<br>
 ;> chắc a xu cà na gặp trúng con đỹ dai dẳng, đúng 1 mình nó phiền nào giờ chứ có ai khác phiền ngoài nó đâu e<br>
-;> 
+;> 1 con đỹ thích hoài niệm, overthinking, ảo tưởng<br>
+;> a có phước mới gặp e chứ a ở ác sao gặp e đc
