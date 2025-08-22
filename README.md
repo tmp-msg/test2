@@ -48,4 +48,5 @@
 ;> nó dai te hén e, người gì chèm nhèm dai te hen e<br>
 ;> giờ nó đang khổ á e, mắc nợ, ko tiền, ko nhà, ko đất<br>
 ;> ít năm nửa nó còn khổ nửa, còn nuôi con ăn học + trả nợ + năm tuổi, nó dân xứ lạ mà e đâu ai cho mượn tiền, vap app<br>
-;> xưa á a đi học đi đâu là nó núp ở kí túc xá a lú ra đi đâu là nó đeo theo đó, mùa dịch về quê nhà cũng đeo lun e, dai te à, láo làm chó á
+;> xưa á a đi học đi đâu là nó núp ở kí túc xá a lú ra đi đâu là nó đeo theo đó, mùa dịch về quê nhà cũng đeo lun e, dai te à, láo làm chó á<br>
+;> xưa tiền xăng vs thời gian nó đeo a là cũng bộn á
