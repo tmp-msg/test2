@@ -18,4 +18,5 @@
 ;> nào có tiền đẻ 1 đứa e <br>
 ;> từ 33-35 thì đẹp e<br>
 ;> con giò heo xạo lồn đéo ai tin mà nói quài e<br>
-;> làm như ai cũng ngu dễ bị lừa, nó khôn hơn ngta thì nó giàu lâu ròi e
+;> làm như ai cũng ngu dễ bị lừa, nó khôn hơn ngta thì nó giàu lâu ròi e<br>
+;> nó nào giờ đi học rồi chung vô làm nhà nước có biết bên ngoài như nào đâu
