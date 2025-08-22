@@ -10,4 +10,5 @@
 ;> xưa á a đi học đi đâu là nó núp ở kí túc xá a lú ra đi đâu là nó đeo theo đó, mùa dịch về quê nhà cũng đeo lun e, dai te à, láo làm chó á<br>
 ;> xưa tiền xăng vs thời gian nó đeo a là cũng bộn á<br>
 ;> a thấy ai giàu hơn mình cũng chả ganh tị gì cả chỉ mong là sau này có tiền kha khá 1 tí thôi<br>
-;> a coi phim người lạ đến từ địa ngục phim hàn chưa bao hay, coi hơi sợ ma xíu
+;> a coi phim người lạ đến từ địa ngục phim hàn chưa bao hay, coi hơi sợ ma xíu<br>
+;> ngủ đi e, ngủ ngon
