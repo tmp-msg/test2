@@ -38,4 +38,6 @@
 ;> đéo ai làm gì nó lun á, ai chưa bao giờ xưng a e gì vs nó lun á<br>
 ;> chắc a xu cà na gặp trúng con đỹ dai dẳng, đúng 1 mình nó phiền nào giờ chứ có ai khác phiền ngoài nó đâu e<br>
 ;> 1 con đỹ thích hoài niệm, overthinking, ảo tưởng<br>
-;> a có phước mới gặp e chứ a ở ác sao gặp e đc
+;> a có phước mới gặp e chứ a ở ác sao gặp e đc<br>
+;> mấy ng kia ngta bth hay con ghệ cũ a quen mấy năm cũng éo ai như nó tự ảo tưởng tự khùng<br>
+;> người a biết hong có ai tính như nó hết e
