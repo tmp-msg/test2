@@ -25,4 +25,7 @@
 ;> sống z mệt đầu đéo giải quyết đc gì<br>
 ;> nó ráng cho hết kiếp người rồi đi đầu thai đi chứ sống nghĩ nhìu mệt đầu<br>
 ;> già ròi hay nhảm <br>
-;> về nhảm vs chồng con nó dí chạy đéo kịp
+;> về nhảm vs chồng con nó dí chạy đéo kịp<br>
+;> tối a hay uống trà nên thành ra khó ngủ, mốt éo uống nửa<br>
+;> nó xạo lồn ai mà tin đâu có hồi nó hô biểu hiện của người ngu dễ tin người =)))<br>
+=))) khùng thì chết mẹ sống chật đất
