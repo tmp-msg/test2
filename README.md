@@ -22,4 +22,6 @@
 ;> nó nào giờ đi học rồi chung vô làm nhà nước có biết bên ngoài như nào đâu<br>
 ;> lên mạng a thấy đầu xoăn số khổ ai chứ a thấy dúng vs nó e<br>
 ;> nó tự lảm nhảm tự tưởng tượng xong overthinking, ngày nào nó cũng z hết e =)))<br>
-;> sống z mệt đầu đéo giải quyết đc gì
+;> sống z mệt đầu đéo giải quyết đc gì<br>
+;> nó ráng cho hết kiếp người rồi đi đầu thai đi chứ sống nghĩ nhìu mệt đầu<br>
+;>
