@@ -25,4 +25,5 @@
 <img width="998" height="745" alt="image" src="https://github.com/user-attachments/assets/984c1160-7f2a-477e-9fa4-8bd3265cf93e" /><br>
 ;> ủa kết thúc năm theo lịch dương mới hết năm số 9 chứ e, xạo lồn à<br>
 ;> sang 1/1/2026 mới bắt đầu năm số 1 chứ<br>
-;> tối giờ chắc block cỡ 100 page fb =))
+;> tối giờ chắc block cỡ 100 page fb =))<br>
+;> nhìu cái thấy xàm xàm mà kiểu như ngta xúc phạm IQ mình lun á e, nghĩ mình bị ngu hay sao á<br>
