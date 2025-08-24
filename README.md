@@ -6,4 +6,6 @@
 ;> đi pv hay đi làm gặp view mỗi người mỗi khác e<br>
 ;> gặp mấy thg học Ths thì nó hô thiếu kiến thức cơ bản, nó đâu biết mấy thg học IT ra nó cũng trả lời như a<br>
 ;> a cũng từng đi làm học vs làm chung mấy thg làm công nghệ như a, cũng y như z<br>
-;> nói chung thì đi làm có người này người kia cũng mệt
+;> nói chung thì đi làm có người này người kia cũng mệt<br>
+;> cũng giống như câu chuyện lớn tuổi đéo có nhà, hay là phụ nữ trước 30 chưa chồng, hay là làm tới 30 tuổi chưa có 100 triệu, học đại học làm thua công nhân,già bị đào thải, đi làm phải làm công ty lớn, tập đoàn lọ chai...<br>
+;> tùy view mỗi người, a là nhìu tiền
