@@ -13,4 +13,6 @@
 ;> giống như là định kiến z mà e, như là sao lớn tuổi còn đi xin việc, sao già ròi chưa có chồng =))<br>
 ;> đợt có thg a đi pv hỏi sao e ko apply cty lớn thế này thế nọ, có những thg gần 30 ròi mà còn có tư tưởng làm cty lớn vl thật =))<br>
 ;> cty lớn thì phúc lợi nó tốt nhưng lương hay môi trường thì chưa chắc tốt<br>
-;> tuyển dụng lương toàn thỏa thuận ko đa phần là z, e ko thấy à, có nhìu cmt chê nữa, đã lọc bớt qua ITviec, ý là lọc bớt ròi nha
+;> tuyển dụng lương toàn thỏa thuận ko đa phần là z, e ko thấy à, có nhìu cmt chê nữa, đã lọc bớt qua ITviec, ý là lọc bớt ròi nha<br>
+;> có nơi thì ngta đéo chịu công nhận AI, hô những đứa dùng AI để code là dốt, mất gốc ai làm cũng đc =))<br>
+;> 
