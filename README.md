@@ -27,3 +27,4 @@
 ;> sang 1/1/2026 mới bắt đầu năm số 1 chứ<br>
 ;> tối giờ chắc block cỡ 100 page fb =))<br>
 ;> nhìu cái thấy xàm xàm mà kiểu như ngta xúc phạm IQ mình lun á e, nghĩ mình bị ngu hay sao á<br>
+;> năm số 9 này có thanh lọc con giò heo ko để a coi
