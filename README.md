@@ -15,4 +15,5 @@
 ;> cty lớn thì phúc lợi nó tốt nhưng lương hay môi trường thì chưa chắc tốt<br>
 ;> tuyển dụng lương toàn thỏa thuận ko đa phần là z, e ko thấy à, có nhìu cmt chê nữa, đã lọc bớt qua ITviec, ý là lọc bớt ròi nha<br>
 ;> có nơi thì ngta đéo chịu công nhận AI, hô những đứa dùng AI để code là dốt, mất gốc ai làm cũng đc =))<br>
-;> ai làm cũng đc bà nội tao =))
+;> ai làm cũng đc bà nội tao =))<br>
+;> làm gì có tiền là đc e, a thấy z, nhìu thì tốt =))
