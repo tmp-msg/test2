@@ -20,4 +20,5 @@
 ;> đi làm auto gặp mấy ng sếp hay nói triết lý, đạo lý còn mệt nữa, trong khi trả lương mình chỉ đủ ăn<br>
 ;> người z đầy lun e<br>
 ;> tưỡng đâu đi làm cho họ mà mình đc nhìu tiền, mua nhà, mua xe<br>
-;> giờ ngồi chặn xàm lòn bớt a, nó tạo page, buff đã đời a chặn 1 cái 1 là đéo bao giờ thấy nữa
+;> giờ ngồi chặn xàm lòn bớt a, nó tạo page, buff đã đời a chặn 1 cái 1 là đéo bao giờ thấy nữa<br>
+=)) sao giờ a mới nghĩ tới
