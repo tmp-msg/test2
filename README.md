@@ -23,4 +23,5 @@
 ;> giờ ngồi chặn xàm lòn bớt a, nó tạo page, buff đã đời a chặn 1 cái 1 là đéo bao giờ thấy nữa<br>
 =)) sao giờ a mới nghĩ tới<br>
 <img width="998" height="745" alt="image" src="https://github.com/user-attachments/assets/984c1160-7f2a-477e-9fa4-8bd3265cf93e" /><br>
-;> ủa kết thúc năm theo lịch dương mới hết năm số 9 chứ e, xạo lồn à
+;> ủa kết thúc năm theo lịch dương mới hết năm số 9 chứ e, xạo lồn à<br>
+;> sang 1/1/2026 mới bắt đầu năm số 1 chứ,
