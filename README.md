@@ -8,4 +8,5 @@
 ;> a cũng từng đi làm học vs làm chung mấy thg làm công nghệ như a, cũng y như z<br>
 ;> nói chung thì đi làm có người này người kia cũng mệt<br>
 ;> cũng giống như câu chuyện lớn tuổi đéo có nhà, hay là phụ nữ trước 30 chưa chồng, hay là làm tới 30 tuổi chưa có 100 triệu, học đại học làm thua công nhân,già bị đào thải, đi làm phải làm công ty lớn, tập đoàn lọ chai...<br>
-;> tùy view mỗi người, a là nhìu tiền là đc
+;> tùy view mỗi người, a là nhìu tiền là đc<br>
+;> hay là làm mức lương x như này là thấp, là nghèo cũng tùy mỗi người thôi e
