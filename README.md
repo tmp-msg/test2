@@ -24,4 +24,5 @@
 ;> xạo lồn hô 1/10 năm thế giới số 1, nó sợ nó bị lọc đi đó e hỉu hem, ko đc đeo bám làm phiền a nữa nó đeo a từ năm 2018 ròi mà<br>
 ;> z từ 9/10 đến 30/9 năm số 0 hả<br>
 <img width="1118" height="329" alt="image" src="https://github.com/user-attachments/assets/e83b5301-18ea-4817-8dd2-c0e2213a3521" /><br>
-;> nè, lười search nhìu nguồn thì search chatgt kiểm chứng lại 
+;> nè, lười search nhìu nguồn thì search chatgt kiểm chứng lại <br>
+;> năm nay mà lọc con lồn già đi là a tin thần số học năm thế giới liền e, nó đeo gần 10 năm ròi mà năm lọc nó dứt ra là quá hay lun
