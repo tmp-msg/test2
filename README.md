@@ -21,4 +21,5 @@
 ;> tính a ko có chịu cực như mấy đứa khác nên lương thấp là a ko nhận việc đó còn dưới quê thì lương thấp a vẫn làm, vì ít ra thấp nhưng vẫn dư ra ăn sài mua cho bản thân đc, chứ ở sài gòn chi phí nhìu<br>
 ;> con giò heo xạo lồn năm số 9 là đến 9/9 tại có số 9 đó e, nên xạo lồn đc<br>
 ;> đã ngta nói "năm" nờ ăm năm là cả năm chứ, làm như a ngu đần lắm<br>
-;> xạo lồn hô 1/10 năm thế giới số 1, nó sợ nó bị lọc đi đó e hỉu hem, ko đc đeo bám làm phiền a nữa nó đeo a từ năm 2018 ròi mà
+;> xạo lồn hô 1/10 năm thế giới số 1, nó sợ nó bị lọc đi đó e hỉu hem, ko đc đeo bám làm phiền a nữa nó đeo a từ năm 2018 ròi mà<br>
+;> z từ 9/10 đến 30/9 năm số 0 hả
