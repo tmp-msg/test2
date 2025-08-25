@@ -22,4 +22,6 @@
 ;> con giò heo xạo lồn năm số 9 là đến 9/9 tại có số 9 đó e, nên xạo lồn đc<br>
 ;> đã ngta nói "năm" nờ ăm năm là cả năm chứ, làm như a ngu đần lắm<br>
 ;> xạo lồn hô 1/10 năm thế giới số 1, nó sợ nó bị lọc đi đó e hỉu hem, ko đc đeo bám làm phiền a nữa nó đeo a từ năm 2018 ròi mà<br>
-;> z từ 9/10 đến 30/9 năm số 0 hả
+;> z từ 9/10 đến 30/9 năm số 0 hả<br>
+<img width="1118" height="329" alt="image" src="https://github.com/user-attachments/assets/e83b5301-18ea-4817-8dd2-c0e2213a3521" /><br>
+;> nè, lười search nhìu nguồn thì search chatgt kiểm chứng lại 
