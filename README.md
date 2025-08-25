@@ -14,4 +14,6 @@
 ;> than khổ ai cho đồng nào, phải lên mạng quay youtube nhà cửa z z đó, hoàn cảnh như z z đó, như ông chú minh z ngta mới cho tiền<br>
 ;> cho 1 tỏi rưỡi quá ngon lun e<br>
 ;> a túng tiền xin e còn éo cho, nó xin online ăn thua gì<br>
-;> năm sau hên thì a cho gặp còn ko thì năm sau nữa e
+;> năm sau hên thì a cho gặp còn ko thì năm sau nữa e<br>
+;> tưởng e đi chơi đi bời di dả tiền bạc a túng tiền a mới xin chứ<br>
+;> tiền bạc ngợp thở là a ko đi chơi đâu
