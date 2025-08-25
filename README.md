@@ -12,4 +12,6 @@
 ;> lương nó vs chồng hơn 10 củ cùng lắm 15 củ nuôi 4 miệng ăn trả nợ nữa, 2 vợ chồng nó lười biếng đi dạy rảnh nhìu ở không đéo kiếm gì làm thêm<br>
 ;> nó làm thêm là làm công việc tay chân như chạy grap, bưng bê đồ, móa nhìu khi nó phục vụ quán nước ngta còn đéo cho nữa vì già quá<br>
 ;> than khổ ai cho đồng nào, phải lên mạng quay youtube nhà cửa z z đó, hoàn cảnh như z z đó, như ông chú minh z ngta mới cho tiền<br>
-;> cho 1 tỏi rưỡi quá ngon lun e
+;> cho 1 tỏi rưỡi quá ngon lun e<br>
+;> a túng tiền xin e còn éo cho, nó xin online ăn thua gì<br>
+;> năm sau hên thì a cho gặp còn ko thì năm sau nữa e
