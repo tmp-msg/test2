@@ -8,4 +8,6 @@
 ;> đeo gần chục năm chúa của chúa tể dai te<br>
 ;> mưa là nó khổ vừa ngập lụt nhà trọ của nó, bth nó thiếu ăn nửa, ko ăn uống thịt thà đồ ngon nhìu <br>
 ;> mua 1 kg thịt bò nguyên thì 200k bò vụn 100k/1 kg, thịt heo có mấy chục 1 kg mà ko mua nổi<br>
-;> thịt heo ko tới 100k/1kg mà
+;> thịt heo ko tới 100k/1kg mà<br>
+;> lương nó vs chồng hơn 10 củ cùng lắm 15 củ nuôi 4 miệng ăn trả nợ nữa, 2 vợ chồng nó lười biếng đi dạy rảnh nhìu ở không đéo kiếm gì làm thêm<br>
+;> 
