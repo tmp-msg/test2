@@ -16,4 +16,5 @@
 ;> a túng tiền xin e còn éo cho, nó xin online ăn thua gì<br>
 ;> năm sau hên thì a cho gặp còn ko thì năm sau nữa e<br>
 ;> tưởng e đi chơi đi bời di dả tiền bạc a túng tiền a mới xin chứ<br>
-;> tiền bạc ngợp thở là a ko đi chơi đâu
+;> tiền bạc ngợp thở là a ko đi chơi đâu<br>
+;> năm sau năm sau nửa a còn nghèo thì mình hết duyên
