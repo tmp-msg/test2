@@ -25,4 +25,5 @@
 ;> z từ 9/10 đến 30/9 năm số 0 hả<br>
 <img width="1118" height="329" alt="image" src="https://github.com/user-attachments/assets/e83b5301-18ea-4817-8dd2-c0e2213a3521" /><br>
 ;> nè, lười search nhìu nguồn thì search chatgt kiểm chứng lại <br>
-;> năm nay mà lọc con lồn già đi là a tin thần số học năm thế giới liền e, nó đeo gần 10 năm ròi mà năm lọc nó dứt ra là quá hay lun
+;> năm nay mà lọc con lồn già đi là a tin thần số học năm thế giới liền e, nó đeo gần 10 năm ròi mà năm lọc nó dứt ra là quá hay lun<br>
+;> đéo lọc đc là a đéo tin 
