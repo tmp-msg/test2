@@ -17,4 +17,5 @@
 ;> năm sau hên thì a cho gặp còn ko thì năm sau nữa e<br>
 ;> tưởng e đi chơi đi bời di dả tiền bạc a túng tiền a mới xin chứ<br>
 ;> tiền bạc ngợp thở là a ko đi chơi đâu<br>
-;> năm sau năm sau nửa a còn nghèo thì mình hết duyên
+;> năm sau năm sau nửa a còn nghèo thì mình hết duyên<br>
+;> tính a ko có chịu cực như mấy đứa khác nên lương thấp là a ko nhận việc đó còn dưới quê thì lương thấp a vẫn làm, vì ít ra thấp nhưng vẫn dư ra ăn sài mua cho bản thân đc, chứ ở sài gòn chi phí nhìu
