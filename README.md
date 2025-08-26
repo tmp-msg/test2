@@ -4,4 +4,6 @@
 ;> tắm rửa rửa bím chưa e<br>
 ;> trật áo ra a bú miếng coi <br>
 ![Uploading image.png…]()<br>
-;> thấy xàm lồn ghê hem, đéo đúng
+;> thấy xàm lồn ghê hem, đéo đúng<br>
+![Uploading image.png…]()<br>
+;> con đũy này nó lì vãi e
