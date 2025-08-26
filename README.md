@@ -1,3 +1,1 @@
-;> ngủ đi gơ răm<br>
-;> cắt móng tay đi e, để móng tay sao móc lavabo đc<br>
-;> hôm nào e cosplay cô hầu gái a coi
+;> con giò heo nó lì e cứ spam 9/9 là hết năm thần số học số 9, đũy này lì e
