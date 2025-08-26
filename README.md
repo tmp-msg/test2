@@ -7,4 +7,6 @@
 ;> thấy xàm lồn ghê hem, đéo đúng<br>
 ![Uploading image.png…]()<br>
 ;> con đũy này nó lì vãi e<br>
-;> mạng lag nên nó ko load hình kịp á e
+;> mạng lag nên nó ko load hình kịp á e<br>
+;> nói chung tấm đầu bài tarot hô họ ko yêu mình, tấm 2 năm thế giới số 1 =))<br>
+;> 
