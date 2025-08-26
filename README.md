@@ -6,4 +6,5 @@
 ![Uploading image.png…]()<br>
 ;> thấy xàm lồn ghê hem, đéo đúng<br>
 ![Uploading image.png…]()<br>
-;> con đũy này nó lì vãi e
+;> con đũy này nó lì vãi e<br>
+;> 
