@@ -15,4 +15,6 @@
 ;> nhìu đứa nó bịa khùng khùng mát mát sao á e<br>
 ;> xạo lồn mục đích là thao túng tâm lý hiểu hem e<br>
 ;> hỏng lẽ e thua cả bà bán vé, lao công =)))<br>
-;> cưới sai người mới khổ á e
+;> cưới sai người mới khổ á e<br>
+;> ví dụ trước khi e gặp a e có gia đình có con ròi đi, thì e phải sống cho gia đình, ko có làm chổ này ko thích thì nghỉ cha mẹ nuôi đâu<br>
+;> e có gia đình ròi thì a ko quen vì a ko thích đồ xài ròi
