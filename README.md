@@ -23,4 +23,5 @@
 ;> nó hô bị hối cưới quá thì 28 cưới còn ko thì nó để tới 30<br>
 ;> a thì a ko mún có gia đình sớm đâu mà thôi gặp e thì e cũng hơi héo ròi, do e có tuổi ròi<br>
 ;> của e để lông hay cạo ròi e<br>
-;> tối mà ngủ ôm e quá đã
+;> tối mà ngủ ôm e quá đã<br>
+;> e mắc cưới lắm hay sao mà 2 tay 2 nhẫn
