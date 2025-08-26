@@ -13,4 +13,5 @@
 ;> thịt heo gần 200k/1kg chứ e, đợt a nói nhầm<br>
 ;> đứa nào xạo lồn hô 33 tuổi ko có người yêu thua cả cô bán vé số, người bán hàng rong =)))<br>
 ;> nhìu đứa nó bịa khùng khùng mát mát sao á e<br>
-;> 
+;> xạo lồn mục đích là thao túng tâm lý hiểu hem e<br>
+;> hỏng lẽ e thua cả bà bán vé, lao công =)))
