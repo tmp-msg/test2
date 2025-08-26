@@ -9,4 +9,5 @@
 ;> con đũy này nó lì vãi e<br>
 ;> mạng lag nên nó ko load hình kịp á e<br>
 ;> nói chung tấm đầu bài tarot hô họ ko yêu mình, tấm 2 năm thế giới số 1 =))<br>
-;> a nói a block con lồn già từ giờ đến sau này mà nó éo tin =))
+;> a nói a block con lồn già từ giờ đến sau này mà nó éo tin =))<br>
+;> thịt heo gần 200k/1kg chứ e, đợt a nói nhầm
