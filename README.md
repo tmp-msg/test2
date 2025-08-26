@@ -2,4 +2,6 @@
 ;> gần 50 tuổi thì nó sống cho gia đình chồng con nó<br>
 ;> gần 50 giàu nghèo đã rõ ròi e<br>
 ;> tắm rửa rửa bím chưa e<br>
-;> trật áo ra a bú miếng coi 
+;> trật áo ra a bú miếng coi <br>
+![Uploading image.png…]()<br>
+;> thấy xàm lồn ghê hem, đéo đúng
