@@ -17,4 +17,6 @@
 ;> hỏng lẽ e thua cả bà bán vé, lao công =)))<br>
 ;> cưới sai người mới khổ á e<br>
 ;> ví dụ trước khi e gặp a e có gia đình có con ròi đi, thì e phải sống cho gia đình, ko có làm chổ này ko thích thì nghỉ cha mẹ nuôi đâu<br>
-;> e có gia đình ròi thì a ko quen vì a ko thích đồ xài ròi
+;> e có gia đình ròi thì a ko quen vì a ko thích đồ xài ròi<br>
+;> có người thì ngta thích có gia đình sớm cho ổn định như mấy con nhỏ đợt a còn sinh viên nó ở ghép vs a z, tùy view mỗi người thôi e<br>
+;> e có a ròi còn gì e
