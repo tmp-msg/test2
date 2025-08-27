@@ -16,4 +16,7 @@
 ;> tính nó hay ghen tị e hỉu hem<br>
 ;> đợt nó ganh tị vì nhà a ăn thịt bò mùa dịch<br>
 ;> thấy trên mạng nhà nước cho 100k mà đi đâu để nhận??<br>
-;> nhà a 3 người 300k
+;> nhà a 3 người 300k<br>
+;> bà ngoại a nuôi heo để bán mà e, bán 7 triệu tạ mới có lời á e<br>
+;> tính ra là 70k/1kg ròi, thương lái mua về đội giá lên nữa e<br>
+;>
