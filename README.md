@@ -43,4 +43,5 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> cty thg đó làm phá sản??<br>
 <img width="493" height="1103" alt="image" src="https://github.com/user-attachments/assets/8cd8d6c8-b844-4295-afd5-258e55c7573d" /><br>
 =))) <br>
-;> thg này làm chắc cũng úp đc mớ tiền ròi
+;> thg này làm chắc cũng úp đc mớ tiền ròi<br>
+;> tính ra học ở cần thơ còn xịn hơn sài gòn sao e
