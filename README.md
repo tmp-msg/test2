@@ -24,4 +24,6 @@
 ;> đại lý đó nhập nhìu thì bán lẻ từng bao thức ăn nó càng rẻ<br>
 ;> nhà a ko có nuôi heo nhen<br>
 ;> dưới a ngta chăn nuôi cũng nhìu lắm<br>
-;> bà ngoại nuôi heo xong bán sửa nhà, mua đất, nói chung bả dư dả tiền bạc lắm
+;> bà ngoại nuôi heo xong bán sửa nhà, mua đất, nói chung bả dư dả tiền bạc lắm<br>
+https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR1NmMFRnelVGAR6J471_DE5feDY0FAI_6F5RfRAd0kGY3BfqtuUcpunZSsMzIB8QgrCIQrn9ww_aem_TqU2NqLCxzueSfCUEtESEQ<br>
+;> bằng tuổi a vl thật, a ko chuyên javascript nên đánh giá tương đối thôi e
