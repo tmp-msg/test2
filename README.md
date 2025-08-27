@@ -27,4 +27,6 @@
 ;> bà ngoại nuôi heo xong bán sửa nhà, mua đất, nói chung bả dư dả tiền bạc lắm<br>
 https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR1NmMFRnelVGAR6J471_DE5feDY0FAI_6F5RfRAd0kGY3BfqtuUcpunZSsMzIB8QgrCIQrn9ww_aem_TqU2NqLCxzueSfCUEtESEQ<br>
 ;> bằng tuổi a vl thật, a ko chuyên javascript nên đánh giá tương đối thôi e<br>
-;> repo github thì chả có gì xịn, để profile thì hơi bịp, éo biết lun e=))
+;> repo github thì chả có gì xịn, để profile thì hơi bịp, éo biết lun e=))<br>
+<img width="1339" height="1264" alt="image" src="https://github.com/user-attachments/assets/15fcd575-fbf7-4754-8bf2-682bd37d3008" /><br>
+;> mới ra trường nhảy ra làm junior lun e, ít nhất cũng fresher
