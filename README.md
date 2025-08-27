@@ -21,4 +21,5 @@
 ;> tính ra là 70k/1kg ròi, thương lái mua về đội giá lên nữa e<br>
 ;> ròi công ngta giết mỗ hao hụt nữa, thành ra là mua cũng 1xxk/1 kg<br>
 ;> nuôi heo toàn cho ăn thức ăn ko à, 1 bao thức ăn heo 25kg là cũng hơn 200k<br>
-;> đại lý đó nhập nhìu thì bán lẻ từng bao thức ăn nó càng rẻ
+;> đại lý đó nhập nhìu thì bán lẻ từng bao thức ăn nó càng rẻ<br>
+;> nhà a ko có nuôi heo nhen
