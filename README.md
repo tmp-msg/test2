@@ -5,4 +5,4 @@
 ;> a đâu có mối quan hệ gì vs con lồn già này<br>
 ;> xưa a đi học nó đeo a quài lun<br>
 ;> nhìu khi a cảm thấy ghê tởm nói thật<br>
-;>
+;> xưa ko có on fb nhìu như giờ e, nên chưa nhận ra để block, giờ block thôi e
