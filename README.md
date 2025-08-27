@@ -9,4 +9,5 @@
 ;> hồi xưa nó khoái a<br>
 ;> trâu già thèm cỏ non mà e, ban ngày ảo tưởng gái 18 tối về đụ vs chồng<br>
 ;> nó xạo lồn tặng thịt heo lễ 2/9 thèm thịt heo quá ko tiền mua<br>
-;> nhà a đang có thịt heo, thịt gà mai ăn tiếp
+;> nhà a đang có thịt heo, thịt gà mai ăn tiếp<br>
+;> nó ghen tị phá người khác là đang mất phước
