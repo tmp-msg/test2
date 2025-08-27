@@ -46,4 +46,6 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> thg này làm chắc cũng úp đc mớ tiền ròi<br>
 ;> tính ra học ở cần thơ còn xịn hơn sài gòn sao e<br>
 <img width="1056" height="1087" alt="image" src="https://github.com/user-attachments/assets/621b135f-98cf-4f35-9552-a68c82f0d04c" /><br>
-;> cty này đợt tuyển vị trí của a giờ ra mắt con chatbot AI này e
+;> cty này đợt tuyển vị trí của a giờ ra mắt con chatbot AI này e<br>
+;> bú zú ai??<br>
+;> thực ra thì mấy cty làm AI toàn sài modelAI có sãn ko à e
