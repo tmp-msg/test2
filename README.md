@@ -7,4 +7,5 @@
 ;> nhìu khi a cảm thấy ghê tởm nói thật<br>
 ;> xưa ko có on fb nhìu như giờ e, nên chưa nhận ra để block, giờ block thôi e<br>
 ;> hồi xưa nó khoái a<br>
-;> trâu già thèm cỏ non mà e, ban ngày ảo tưởng gái 18 tối về đụ vs chồng
+;> trâu già thèm cỏ non mà e, ban ngày ảo tưởng gái 18 tối về đụ vs chồng<br>
+;> nó xạo lồn tặng thịt heo lễ 2/9 thèm thịt heo quá ko tiền mua
