@@ -12,4 +12,8 @@
 ;> nhà a đang có thịt heo, thịt gà mai ăn tiếp<br>
 ;> nó ghen tị phá người khác là đang mất phước<br>
 ;> đã đéo có phước còn mất phước là toang<br>
-;> 100k chắc mua đc thịt heo trong bách hóa xanh, ăn gì kì lắm e
+;> 100k chắc mua đc thịt heo trong bách hóa xanh, ăn gì kì lắm e<br>
+;> tính nó hay ghen tị e hỉu hem<br>
+;> đợt nó ganh tị vì nhà a ăn thịt bò mùa dịch<br>
+;> thấy trên mạng nhà nước cho 100k mà đi đâu để nhận??<br>
+;> nhà a 3 người 300k
