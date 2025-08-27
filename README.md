@@ -6,4 +6,5 @@
 ;> xưa a đi học nó đeo a quài lun<br>
 ;> nhìu khi a cảm thấy ghê tởm nói thật<br>
 ;> xưa ko có on fb nhìu như giờ e, nên chưa nhận ra để block, giờ block thôi e<br>
-;> hồi xưa nó khoái a
+;> hồi xưa nó khoái a<br>
+;> trâu già thèm cỏ non mà e, ban ngày ảo tưởng gái 18 tối về đụ vs chồng
