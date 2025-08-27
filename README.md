@@ -29,4 +29,5 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> bằng tuổi a vl thật, a ko chuyên javascript nên đánh giá tương đối thôi e<br>
 ;> repo github thì chả có gì xịn, để profile thì hơi bịp, éo biết lun e=))<br>
 <img width="1339" height="1264" alt="image" src="https://github.com/user-attachments/assets/15fcd575-fbf7-4754-8bf2-682bd37d3008" /><br>
-;> mới ra trường nhảy ra làm junior lun e, ít nhất cũng fresher
+;> mới ra trường nhảy ra làm junior lun e, ít nhất cũng fresher<br>
+;> thường thường ngta bịp bợm là ít ai show mặt để profile các thứ lắm e
