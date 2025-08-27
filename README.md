@@ -23,4 +23,5 @@
 ;> nuôi heo toàn cho ăn thức ăn ko à, 1 bao thức ăn heo 25kg là cũng hơn 200k<br>
 ;> đại lý đó nhập nhìu thì bán lẻ từng bao thức ăn nó càng rẻ<br>
 ;> nhà a ko có nuôi heo nhen<br>
-;> dưới a ngta chăn nuôi cũng nhìu lắm
+;> dưới a ngta chăn nuôi cũng nhìu lắm<br>
+;> bà ngoại nuôi heo xong bán sửa nhà, mua đất, nói chung bả dư dả tiền bạc lắm
