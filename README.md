@@ -40,4 +40,7 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 <img width="1232" height="827" alt="image" src="https://github.com/user-attachments/assets/a832b554-5273-4530-9d35-98fa331387ef" /><br>
 ;> sao thấy trên kia để 24 tuổi mà protofile mới làm tháng 6?<br>
 ;> <img width="933" height="1260" alt="image" src="https://github.com/user-attachments/assets/1180243d-bb00-4e81-a2c6-a804775a1b03" /><br>
-;> cty thg đó làm phá sản??
+;> cty thg đó làm phá sản??<br>
+<img width="493" height="1103" alt="image" src="https://github.com/user-attachments/assets/8cd8d6c8-b844-4295-afd5-258e55c7573d" /><br>
+=))) <br>
+;> thg này làm chắc cũng úp đc mớ tiền ròi
