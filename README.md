@@ -52,4 +52,5 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> con buzuAI qq gì a xài hong đc mịa gì<br>
 ;> coi để lấy ý tưởng làm project cá nhân chứ e =))<br>
 ;> mốt a làm con chatbot tựa tựa mai tech coi sao, thì kiểu như là nó mún hỏi gì thì nó hỏi mình, mình rep qua rep lại kiểu z<br>
-;> nhìu cty thấy a làm con chatbot show code có mấy dòng chắc sốc lắm
+;> nhìu cty thấy a làm con chatbot show code có mấy dòng chắc sốc lắm<br>
+;> mốt làm con giống mai tech bằng django e
