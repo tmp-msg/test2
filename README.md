@@ -32,4 +32,5 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> mới ra trường nhảy ra làm junior lun e, ít nhất cũng fresher<br>
 ;> thường thường ngta bịp bợm là ít ai show mặt để profile các thứ lắm e<br>
 ;> source code thì coi bên khác fork về github bên mình, kiểu như e coi bài đăng xong e share về page e á e<br>
-<img width="1063" height="1096" alt="image" src="https://github.com/user-attachments/assets/e7ac276d-7e39-4d10-8501-cb3bd64b8ac8" />
+<img width="1063" height="1096" alt="image" src="https://github.com/user-attachments/assets/e7ac276d-7e39-4d10-8501-cb3bd64b8ac8" /><br>
+;> làm 2 chỗ 1 lượt lun vl
