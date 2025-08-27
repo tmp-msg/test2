@@ -48,4 +48,5 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 <img width="1056" height="1087" alt="image" src="https://github.com/user-attachments/assets/621b135f-98cf-4f35-9552-a68c82f0d04c" /><br>
 ;> cty này đợt tuyển vị trí của a giờ ra mắt con chatbot AI này e<br>
 ;> bú zú ai??<br>
-;> thực ra thì mấy cty làm AI toàn sài modelAI có sãn ko à e
+;> thực ra thì mấy cty làm AI toàn sài modelAI có sãn ko à e<br>
+;> con buzuAI qq gì a xài hong đc mịa gì
