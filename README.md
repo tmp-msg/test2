@@ -55,4 +55,7 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> nhìu cty thấy a làm con chatbot show code có mấy dòng chắc sốc lắm<br>
 ;> mốt làm con giống mai tech bằng django e<br>
 ;> buzuAI gì bên nph digital sao giống nhái lại của mai tech quá hén e<br>
-=))) cạnh tranh e
+=))) cạnh tranh e<br>
+;> khác đéo gì đâu, móa <br>
+<img width="2551" height="1220" alt="image" src="https://github.com/user-attachments/assets/93b694d4-0543-48f6-ac63-bcc948da83df" /><br>
+;> thì ra là nhúng vô trang hiển thị chat bên dưới web
