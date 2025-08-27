@@ -58,4 +58,7 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 =))) cạnh tranh e<br>
 ;> khác đéo gì đâu, móa <br>
 <img width="2551" height="1220" alt="image" src="https://github.com/user-attachments/assets/93b694d4-0543-48f6-ac63-bcc948da83df" /><br>
-;> thì ra là nhúng vô trang hiển thị chat bên dưới web
+;> thì ra là nhúng vô trang hiển thị chat bên dưới web<br>
+;> <img width="1382" height="801" alt="image" src="https://github.com/user-attachments/assets/e911d248-f3a4-4834-8166-dbbec08ee1d6" /><br>
+;> xài mấy này chắc lun e mà phải tốn tiền<br>
+;> đc cái thì thông minh, ko phụ thuộc cấu hình lap
