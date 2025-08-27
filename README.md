@@ -61,4 +61,5 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> thì ra là nhúng vô trang hiển thị chat bên dưới web<br>
 ;> <img width="1382" height="801" alt="image" src="https://github.com/user-attachments/assets/e911d248-f3a4-4834-8166-dbbec08ee1d6" /><br>
 ;> xài mấy này chắc lun e mà phải tốn tiền<br>
-;> đc cái thì thông minh, ko phụ thuộc cấu hình lap
+;> đc cái thì thông minh, ko phụ thuộc cấu hình lap<br>
+;> ngủ ngon e, khuya ròi e
