@@ -36,4 +36,8 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> làm 2 chỗ 1 lượt lun vl<br>
 ;> này phải gọi ai có chuyên môn pv tí mới biết đc e<br>
 ;> giờ còn xin việc làm remote kìa e<br>
-;> thg a share á vl
+;> thg a share á vl<br>
+<img width="1232" height="827" alt="image" src="https://github.com/user-attachments/assets/a832b554-5273-4530-9d35-98fa331387ef" /><br>
+;> sao thấy trên kia để 24 tuổi mà protofile mới làm tháng 6?<br>
+;> <img width="933" height="1260" alt="image" src="https://github.com/user-attachments/assets/1180243d-bb00-4e81-a2c6-a804775a1b03" /><br>
+;> cty thg đó làm phá sản??
