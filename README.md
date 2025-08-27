@@ -19,4 +19,4 @@
 ;> nhà a 3 người 300k<br>
 ;> bà ngoại a nuôi heo để bán mà e, bán 7 triệu tạ mới có lời á e<br>
 ;> tính ra là 70k/1kg ròi, thương lái mua về đội giá lên nữa e<br>
-;>
+;> ròi công ngta giết mỗ hao hụt nữa, thành ra là mua cũng 1xxk/1 kg
