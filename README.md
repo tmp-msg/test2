@@ -49,4 +49,6 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 ;> cty này đợt tuyển vị trí của a giờ ra mắt con chatbot AI này e<br>
 ;> bú zú ai??<br>
 ;> thực ra thì mấy cty làm AI toàn sài modelAI có sãn ko à e<br>
-;> con buzuAI qq gì a xài hong đc mịa gì
+;> con buzuAI qq gì a xài hong đc mịa gì<br>
+;> coi để lấy ý tưởng làm project cá nhân chứ e =))<br>
+;> mốt a làm con chatbot tựa tựa mai tech coi sao, thì kiểu như là nó mún hỏi gì thì nó hỏi mình, mình rep qua rep lại kiểu z
