@@ -44,4 +44,6 @@ https://vonhi.vercel.app/?fbclid=IwY2xjawMcItVleHRuA2FlbQIxMABicmlkETF2eHBDaUZpR
 <img width="493" height="1103" alt="image" src="https://github.com/user-attachments/assets/8cd8d6c8-b844-4295-afd5-258e55c7573d" /><br>
 =))) <br>
 ;> thg này làm chắc cũng úp đc mớ tiền ròi<br>
-;> tính ra học ở cần thơ còn xịn hơn sài gòn sao e
+;> tính ra học ở cần thơ còn xịn hơn sài gòn sao e<br>
+<img width="1056" height="1087" alt="image" src="https://github.com/user-attachments/assets/621b135f-98cf-4f35-9552-a68c82f0d04c" /><br>
+;> cty này đợt tuyển vị trí của a giờ ra mắt con chatbot AI này e
