@@ -7,4 +7,5 @@
 ;> chắc con buzuAI đó đang build nên xài hong đc<br>
 <img width="1052" height="996" alt="image" src="https://github.com/user-attachments/assets/8f14b110-157b-47be-a46c-d8644c99487d" /><br>
 ;> nó ra app nữa e giống tinder + tiktok<br>
-;> e có xem phim heo thường hem e
+;> e có xem phim heo thường hem e<br>
+;> thèm đụ chứ gặp a thì ngại
