@@ -5,4 +5,5 @@
 ;> mốt qua trọ a chơi là e phải rửa bím trước =))<br>
 ;> e nửa ngủ chung a tới già chịu hem<br>
 ;> giờ a bún ngủ quá e<br>
-;> coi phim heo ít ít thôi e, coi nhìu lú đầu đó
+;> coi phim heo ít ít thôi e, coi nhìu lú đầu đó<br>
+;> a ngủ nhe e, bùn ngủ quá
