@@ -5,4 +5,5 @@
 ;> rảnh mà ngồi block thôi e<br>
 ;> e mún tết năm nay đi chơi vs a hem<br>
 ;> add zalo a đi ròi tết nhắn đi chơi<br>
-;> có trang xàm lòn iu đương con giò heo buff lên 27k like
+;> có trang xàm lòn iu đương con giò heo buff lên 27k like<br>
+;> block riết hong còn gì để block lun e =))
