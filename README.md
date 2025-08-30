@@ -11,4 +11,5 @@
 ;> cảm giác block thật quá đã e, 1 nick block thôi, chứ xài 10 nick block hết 10 nick thì lòi lòn lun e<br>
 ;> e 30 tuổi mới biết xem phim heo cũng đc đi còn trong sáng<br>
 ;> nhìu ng ngta nungfd sớm thì coi phim heo sớm hơn<br>
-;> e nungfg muộn
+;> e nungfg muộn<br>
+;> có ng chưa biết nungfd lon là gì đã lấy chồng, điển hình như con yến giò heo
