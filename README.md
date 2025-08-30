@@ -12,4 +12,5 @@
 ;> e 30 tuổi mới biết xem phim heo cũng đc đi còn trong sáng<br>
 ;> nhìu ng ngta nungfd sớm thì coi phim heo sớm hơn<br>
 ;> e nungfg muộn<br>
-;> có ng chưa biết nungfd lon là gì đã lấy chồng, điển hình như con yến giò heo
+;> có ng chưa biết nungfd lon là gì đã lấy chồng, điển hình như con yến giò heo<br>
+;> e biết iu muộn thì e nungfdlon muộn thôi e 
