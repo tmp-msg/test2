@@ -6,4 +6,5 @@
 ;> e mún tết năm nay đi chơi vs a hem<br>
 ;> add zalo a đi ròi tết nhắn đi chơi<br>
 ;> có trang xàm lòn iu đương con giò heo buff lên 27k like<br>
-;> block riết hong còn gì để block lun e =))
+;> block riết hong còn gì để block lun e =))<br>
+;> quen online hoài sao e
