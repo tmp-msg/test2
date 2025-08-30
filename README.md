@@ -7,4 +7,5 @@
 ;> add zalo a đi ròi tết nhắn đi chơi<br>
 ;> có trang xàm lòn iu đương con giò heo buff lên 27k like<br>
 ;> block riết hong còn gì để block lun e =))<br>
-;> quen online hoài sao e
+;> quen online hoài sao e<br>
+;> cảm giác block thật quá đã e, 1 nick block thôi, chứ xài 10 nick block hết 10 nick thì lòi lòn lun e<br>
