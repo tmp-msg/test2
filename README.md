@@ -13,4 +13,6 @@
 ;> đã ngu còn lì<br>
 ;> a vs nó tuổi mẹ con nó có chồng con đùm đề mà phiền quài chời<br>
 =))) suốt ngày spam 9/9 năm số 9 1/10 năm số 1, móa éo hỉu lun e<br>
-=)) éo hỉu sao nó nghĩ ra 9/9 hết năm số 9 lun e, hong lẻ năm số 1 hết lúc 1/1 à còn năm số 8 hết lúc 8/8 à
+=)) éo hỉu sao nó nghĩ ra 9/9 hết năm số 9 lun e, hong lẻ năm số 1 hết lúc 1/1 à còn năm số 8 hết lúc 8/8 à<br>
+;> e mún chồng nhưng mà e hem chịu nhắn vs a<br>
+;> thôi a off à
