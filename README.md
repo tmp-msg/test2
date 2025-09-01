@@ -7,4 +7,5 @@
 ;> tính nó e biết sao hong ích kỉ + hay ganh tị + ganh ghét<br>
 ;> e về việt nam chưa e<br>
 ;> e là thích đụ nhất, a biết lắm<br>
-;> còn 4 tháng nữa hết năm số 9 e, 2+2+5=9 mà
+;> còn 4 tháng nữa hết năm số 9 e, 2+2+5=9 mà<br>
+;> đã a đéo tin năm 2025 là nửa nạc nữa mỡ năm số 9 lẫn năm số 1 ròi còn lì đầu độc tư tưởng a e
