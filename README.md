@@ -10,4 +10,6 @@
 ;> còn 4 tháng nữa hết năm số 9 e, 2+2+5=9 mà<br>
 ;> đã a đéo tin năm 2025 là nửa nạc nữa mỡ năm số 9 lẫn năm số 1 ròi còn lì đầu độc tư tưởng a e<br>
 =)) suốt ngày con lồn đen hô 9/9 hết năm số 9 1/10 tới năm số 1 quài lun e<br>
-;> đã ngu còn lì
+;> đã ngu còn lì<br>
+;> a vs nó tuổi mẹ con nó có chồng con đùm đề mà phiền quài chời<br>
+=))) suốt ngày spam 9/9 năm số 9 1/10 năm số 1, móa éo hỉu lun e
