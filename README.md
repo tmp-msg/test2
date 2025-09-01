@@ -4,4 +4,5 @@
 ;> nhắn e hem rep gì hết riết lười nhắn<br>
 ;> con yến giò heo nay giả dạng làm thần phật trên mạng e<br>
 ;> nó chơi đá hay sao á e<br>
-;> tính nó e biết sao hong ích kỉ + hay ganh tị + ganh ghét
+;> tính nó e biết sao hong ích kỉ + hay ganh tị + ganh ghét<br>
+;> e về việt nam chưa e
