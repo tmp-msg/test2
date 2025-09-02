@@ -7,4 +7,5 @@
 ;> nguyên nhà con giò heo mất 400k =)))<br>
 ;> a ước có nhà riêng 2 đứa mình ở chung<br>
 ;> tối nungfd còn đụ đc =))<br>
-;> ở chung thỉnh thoảng nungffd thì nắc thôi e =))
+;> ở chung thỉnh thoảng nungffd thì nắc thôi e =))<br>
+;> nungfd nhìu thì nắc nhìu nungfd ít thì nắc ít
