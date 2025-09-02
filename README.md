@@ -14,4 +14,5 @@
 ;> chem chép e màu hồng hay đen<br>
 ;> e lấy kiếng e soi chứ lấy đt soi bị hack cam thì ngta thấy chem chép e<br>
 ;> hồi mới quen a cũng định hỏi ròi mà mới hỏi cũng kì<br>
-;> này chắc phải tự a khám phá chứ
+;> này chắc phải tự a khám phá chứ<br>
+;> ngủ ngon e
