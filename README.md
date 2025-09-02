@@ -5,4 +5,5 @@
 ;> nộp giấy xong mai ngta gọi lấy chừng 10 phút là có tiền rồi e<br>
 ;> ở trọ đéo có hộ khẩu lồn què gì =)))<br>
 ;> nguyên nhà con giò heo mất 400k =)))<br>
-;> a ước có nhà riêng 2 đứa mình ở chung
+;> a ước có nhà riêng 2 đứa mình ở chung<br>
+;> tối nungfd còn đụ đc =))
