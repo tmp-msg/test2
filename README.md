@@ -6,4 +6,5 @@
 ;> ở trọ đéo có hộ khẩu lồn què gì =)))<br>
 ;> nguyên nhà con giò heo mất 400k =)))<br>
 ;> a ước có nhà riêng 2 đứa mình ở chung<br>
-;> tối nungfd còn đụ đc =))
+;> tối nungfd còn đụ đc =))<br>
+;> ở chung thỉnh thoảng nungffd thì nắc thôi e =))
