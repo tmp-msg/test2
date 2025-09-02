@@ -8,4 +8,6 @@
 ;> a ước có nhà riêng 2 đứa mình ở chung<br>
 ;> tối nungfd còn đụ đc =))<br>
 ;> ở chung thỉnh thoảng nungffd thì nắc thôi e =))<br>
-;> nungfd nhìu thì nắc nhìu nungfd ít thì nắc ít
+;> nungfd nhìu thì nắc nhìu nungfd ít thì nắc ít<br>
+;> nhà mà oke thì 5-6 tỉ e<br>
+;> ko tiền thì thuê thôi e
