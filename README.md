@@ -11,4 +11,5 @@
 ;> nungfd nhìu thì nắc nhìu nungfd ít thì nắc ít<br>
 ;> nhà mà oke thì 5-6 tỉ e<br>
 ;> ko tiền thì thuê thôi e<br>
-;> chem chép e màu hồng hay đen
+;> chem chép e màu hồng hay đen<br>
+;> e lấy kiếng e soi chứ lấy đt soi bị hack cam thì ngta thấy chem chép e
