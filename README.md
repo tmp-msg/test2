@@ -12,4 +12,6 @@
 ;> nhà mà oke thì 5-6 tỉ e<br>
 ;> ko tiền thì thuê thôi e<br>
 ;> chem chép e màu hồng hay đen<br>
-;> e lấy kiếng e soi chứ lấy đt soi bị hack cam thì ngta thấy chem chép e
+;> e lấy kiếng e soi chứ lấy đt soi bị hack cam thì ngta thấy chem chép e<br>
+;> hồi mới quen a cũng định hỏi ròi mà mới hỏi cũng kì<br>
+;> này chắc phải tự a khám phá chứ
