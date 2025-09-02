@@ -4,4 +4,5 @@
 ;> bà gần nhà a nhà bả tính lun vợ con của con trai bả là đc 700k bả mua lẩu về bả ăn<br>
 ;> nộp giấy xong mai ngta gọi lấy chừng 10 phút là có tiền rồi e<br>
 ;> ở trọ đéo có hộ khẩu lồn què gì =)))<br>
-;> nguyên nhà con giò heo mất 400k =)))
+;> nguyên nhà con giò heo mất 400k =)))<br>
+;> a ước có nhà riêng 2 đứa mình ở chung
