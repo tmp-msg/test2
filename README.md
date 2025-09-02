@@ -10,4 +10,5 @@
 ;> ở chung thỉnh thoảng nungffd thì nắc thôi e =))<br>
 ;> nungfd nhìu thì nắc nhìu nungfd ít thì nắc ít<br>
 ;> nhà mà oke thì 5-6 tỉ e<br>
-;> ko tiền thì thuê thôi e
+;> ko tiền thì thuê thôi e<br>
+;> chem chép e màu hồng hay đen
