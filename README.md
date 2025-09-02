@@ -3,4 +3,5 @@
 ;> con giò heo ở trọ ko có cắc nào ghen tị đâm choọt đó e<br>
 ;> bà gần nhà a nhà bả tính lun vợ con của con trai bả là đc 700k bả mua lẩu về bả ăn<br>
 ;> nộp giấy xong mai ngta gọi lấy chừng 10 phút là có tiền rồi e<br>
-;> ở trọ đéo có hộ khẩu lồn què gì =)))
+;> ở trọ đéo có hộ khẩu lồn què gì =)))<br>
+;> nguyên nhà con giò heo mất 400k =)))
