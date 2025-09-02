@@ -15,4 +15,4 @@
 ;> e lấy kiếng e soi chứ lấy đt soi bị hack cam thì ngta thấy chem chép e<br>
 ;> hồi mới quen a cũng định hỏi ròi mà mới hỏi cũng kì<br>
 ;> này chắc phải tự a khám phá chứ<br>
-;> ngủ ngon e
+;> ngủ ngon e, a bùn ngủ ròi
