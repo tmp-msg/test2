@@ -8,4 +8,5 @@
 ;> nhật bản kì thị người nước ngoài lắm, nó ưu tiên dân nước nó thôi<br>
 ;> con giò heo hay ganh tị vs a nên nó mún a nếu có tiền thì đi thật xa kiểu z<br>
 ;> nó thì đéo mún gì tốt đẹp vs a ròi<br>
-;> nay nhìn e chuppy z, a thì gầy hơn xưa chút
+;> nay nhìn e chuppy z, a thì gầy hơn xưa chút<br>
+;> a ngủ à e
