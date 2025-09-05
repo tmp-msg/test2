@@ -4,4 +4,6 @@
 ;> chưa có việc làm á thì chê bai còn có việc làm ròi thì đầu độc tư tưởng cho nghỉ việc hoặc bị đuổi =))<br>
 ;> xưa a bị layoff vì cty đó sống dơ thôi làm xong cái sườn dự án cái cho nghỉ ai dè tụi trong cty ko làm đc, code thì a chưa push lên thế là đắp chiếu dự án<br>
 ;> dự án đó làm lại thôi e hiểu hem, tức là đang dùng cái tương tự đập làm lại làm cái y chang ý z<br>
-;> vì cái cũ si đa
+;> vì cái cũ si đa<br>
+;> trong bụng nó mún a ko có tiền ý e hỉu hem vì ganh tị á<br>
+;> cuộc sống ai nấy sống đi đeo theo phiền vl
