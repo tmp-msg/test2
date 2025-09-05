@@ -6,4 +6,5 @@
 ;> dự án đó làm lại thôi e hiểu hem, tức là đang dùng cái tương tự đập làm lại làm cái y chang ý z<br>
 ;> vì cái cũ si đa<br>
 ;> trong bụng nó mún a ko có tiền ý e hỉu hem vì ganh tị á<br>
-;> cuộc sống ai nấy sống đi đeo theo phiền vl
+;> cuộc sống ai nấy sống đi đeo theo phiền vl<br>
+;> sống mà đéo có tiền mới khổ e
