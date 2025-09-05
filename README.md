@@ -9,4 +9,5 @@
 ;> cuộc sống ai nấy sống đi đeo theo phiền vl<br>
 ;> sống mà đéo có tiền mới khổ e<br>
 ;> ý là làm có dư kìa e, làm đủ nuôi miệng ăn thì xem lại công việc hiện tại có phát triển ko, ko thì đổi việc =))<br>
-;> giờ nghèo quá cũng bùn nữa e
+;> giờ nghèo quá cũng bùn nữa e<br>
+;> a ngủ quên e
