@@ -3,4 +3,5 @@
 ;> e xem phim heo web nào<br>
 ;> e 29 mới xem phim heo hơi trễ<br>
 ;> a skincare ròi, chuẩn bị ngủ<br>
-;> chắc đi chơi vs nhau vài lần cởi mở hơn mới ngủ chung đc e
+;> chắc đi chơi vs nhau vài lần cởi mở hơn mới ngủ chung đc e<br>
+;> tối hong có chuyện gì nói thì ôm nhau ngủ thôi e
