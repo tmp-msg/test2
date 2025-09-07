@@ -5,4 +5,6 @@
 ;> nó làm biếng lắm e, làm giảng viên tuần dạy ẹo ẹo nhiu buổi đâu, còn thời gian còn lại nó ở ko dù nghèo nuôi con, con nó biết chắc là ko nuôi lại nó ròi<br>
 ;> con nó giống nó học dở làm lương thấp nuôi thân nuôi gia đình riêng của nó ko đủ sao nuôi nó dc<br>
 ;> con nó giống nó y chang à nên nghèo là chắc chắn ròi<br>
-;> e nghĩ thử coi nó 1 tuần làm tầm 20 tiếng là quá nhàn lun
+;> e nghĩ thử coi nó 1 tuần làm tầm 20 tiếng là quá nhàn lun<br>
+;> làm tư nhân 1 tuần tuần tầm 50 tiếng, mới có mức lương khá hơn nó<br>
+;> con giò heo mới nuôi 1 thg học đại học mà mún lếch nuôi ko nổi ròi
