@@ -9,4 +9,5 @@
 ;> làm tư nhân 1 tuần tuần tầm 50 tiếng, mới có mức lương khá hơn nó<br>
 ;> con giò heo mới nuôi 1 thg học đại học mà mún lếch nuôi ko nổi ròi<br>
 ;> con nó giống 2 vợ chồng nó nên mới dở tệ =)))<br>
-;> nó làm từ giờ tới nghỉ hưu cũng đéo có sống sung sướng khấm khá đc
+;> nó làm từ giờ tới nghỉ hưu cũng đéo có sống sung sướng khấm khá đc<br>
+;> nó làm qq gì có tài sản đất đai nên phải vay app đen lãi suất cao đó e, gặp a cũng đéo cho mượn, phải có tài sản ngta mới cho mượn tiền, vay app có căn cước là đc chứ gì e
