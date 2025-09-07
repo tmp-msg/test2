@@ -8,4 +8,5 @@
 ;> e nghĩ thử coi nó 1 tuần làm tầm 20 tiếng là quá nhàn lun<br>
 ;> làm tư nhân 1 tuần tuần tầm 50 tiếng, mới có mức lương khá hơn nó<br>
 ;> con giò heo mới nuôi 1 thg học đại học mà mún lếch nuôi ko nổi ròi<br>
-;> con nó giống 2 vợ chồng nó nên mới dở tệ =)))
+;> con nó giống 2 vợ chồng nó nên mới dở tệ =)))<br>
+;> nó làm từ giờ tới nghỉ hưu cũng đéo có sống sung sướng khấm khá đc
