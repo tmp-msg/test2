@@ -21,3 +21,5 @@
 ;> nó xấu tính hay ganh tị lắm e<br>
 ;> ko nên chơi vs những đứa hay ganh tị vs mình e, vì lúc nào nó cũng sợ ngta hơn nó hơn, hay bàn lùi, chê bai<br>
 ;> mấy đứa tính hay ganh tị là nên né nó ra, nó ko mún gì tốt cho mình đâu e<br>
+;> bàn lùi, vs thao túng tâm lý cho mình sa ngã, tàn lụi =))<br>
+;> 
