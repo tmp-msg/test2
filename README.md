@@ -16,4 +16,5 @@
 ;> nó khó tính đó e<br>
 ;> tốt tính mà đi lừa lọc xin tiền ng khác để ăn xài<br>
 ;> nó hô con cái ko tiền thì đi xin ăn chứ đừng xin tiền cha mẹ, nghe xàm lồn e<br>
+;> nó ghen tị vì ngta có cha mẹ giàu support cho đó hỉu hem<br>
 ;> 
