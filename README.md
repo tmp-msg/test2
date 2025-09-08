@@ -42,4 +42,7 @@
 ;> chê như cớt chải xong xin tiền =))), ụa tự dưng có bà lồn nào học đại học 7-8 năm lú ra xin tiền<br>
 ;> a có quan hệ qq gì vs nó đâu, có tiền cũng đéo cho đâu<br>
 ;> dân hôi của gì đâu, nó xin chồng nó bộ có lý hơn á<br>
-;> nó xin chồng, con nó thì hợp lý hơn, chồng con nó, nó phục vụ nào giờ, đéo nhờ vả qq gì sất
+;> nó xin chồng, con nó thì hợp lý hơn, chồng con nó, nó phục vụ nào giờ, đéo nhờ vả qq gì sất<br>
+;> có tình nhân thì xin tiền tình nhân<br>
+;> 1 xin tiền chồng, ko cho xin tiền ghệ z thôi<br>
+;> quen ghệ phải cho nắc đụ đi chơi mới đc, chứ nằm sình lồn ở nhà xin tiền ai cho
