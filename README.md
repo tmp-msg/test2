@@ -41,4 +41,5 @@
 ;> gì chứ a nhớ dai lắm<br>
 ;> chê như cớt chải xong xin tiền =))), ụa tự dưng có bà lồn nào học đại học 7-8 năm lú ra xin tiền<br>
 ;> a có quan hệ qq gì vs nó đâu, có tiền cũng đéo cho đâu<br>
-;> dân hôi của gì đâu, nó xin chồng nó bộ có lý hơn á
+;> dân hôi của gì đâu, nó xin chồng nó bộ có lý hơn á<br>
+;> nó xin chồng, con nó thì hợp lý hơn, chồng con nó, nó phục vụ nào giờ, đéo nhờ vả qq gì sất
