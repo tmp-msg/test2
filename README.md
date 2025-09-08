@@ -17,4 +17,4 @@
 ;> tốt tính mà đi lừa lọc xin tiền ng khác để ăn xài<br>
 ;> nó hô con cái ko tiền thì đi xin ăn chứ đừng xin tiền cha mẹ, nghe xàm lồn e<br>
 ;> nó ghen tị vì ngta có cha mẹ giàu support cho đó hỉu hem<br>
-;> 
+;> nó ko có phước có cha mẹ giàu hay khá giả thì nó phải cố gắng hơn ngta chứ thích sống an nhàn, an phận sao khá
