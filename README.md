@@ -38,4 +38,7 @@
 ;> nó tửng tửng mát mát sao á e, hèn gì ko ai iu nó, có tuổi lấy chồng đại, có chồng con tự bơi tự lo<br>
 ;> cả cuộc đời ko biết đc ai iu là gì, chồng nó cưới nó để có gia đình có ng đẻ con thôi e<br>
 ;> hong hỉu sao nó chê bai a như cức xong xin tiền a đéo hỉu sao à<br>
-;> gì chứ a nhớ dai lắm
+;> gì chứ a nhớ dai lắm<br>
+;> chê như cớt chải xong xin tiền =))), ụa tự dưng có bà lồn nào học đại học 7-8 năm lú ra xin tiền<br>
+;> a có quan hệ qq gì vs nó đâu, có tiền cũng đéo cho đâu<br>
+;> dân hôi của gì đâu, nó xin chồng nó bộ có lý hơn á
