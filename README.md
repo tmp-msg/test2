@@ -31,4 +31,7 @@
 ;> nó chơi đá nặng lắm e, nào là hô a nyc nó, ròi nào nó đơn phương, ròi nào tình iu sâu đậm =)))<br>
 ;> thật ra thì nó iu chồng nó =))<br>
 ;> ganh tị vs trù chết phá đám mún ngta tồi tệ đi ko phải là tình iu đâu e<br>
-;> nó chơi đá đó e
+;> nó chơi đá đó e<br>
+;> chứ e nghĩ ai iu e mà trù e chết quài ko, mong e rớt pv, sống ko tiền, lun ganh tị vs e ko<br>
+=)) đéo có ai iu ai mà như z cả<br>
+;> nó chơi đá ngáo cần đó e
