@@ -37,4 +37,5 @@
 ;> nó chơi đá ngáo cần đó e<br>
 ;> nó tửng tửng mát mát sao á e, hèn gì ko ai iu nó, có tuổi lấy chồng đại, có chồng con tự bơi tự lo<br>
 ;> cả cuộc đời ko biết đc ai iu là gì, chồng nó cưới nó để có gia đình có ng đẻ con thôi e<br>
-;> hong hỉu sao nó chê bai a như cức xong xin tiền a đéo hỉu sao à
+;> hong hỉu sao nó chê bai a như cức xong xin tiền a đéo hỉu sao à<br>
+;> gì chứ a nhớ dai lắm
