@@ -24,4 +24,6 @@
 ;> bàn lùi, vs thao túng tâm lý cho mình sa ngã, tàn lụi =))<br>
 ;> sống mà cứ tập trung vô cuộc sống ng khác trù dập ng khác để làm gì, đúng ko e<br>
 ;> mình phải tập trung vô mình<br>
-;> sống mà ganh tị quài mệt lắm e
+;> sống mà ganh tị quài mệt lắm e<br>
+;> làm gì hôm qua nó trù a chết quài chứ gì, hồi đi làm ở quận 11 thì cũng trù chết tiếp<br>
+;> a đi coi bói éo ai nói a vắng số chết sớm hết =)))
