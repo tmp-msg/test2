@@ -29,4 +29,5 @@
 ;> a đi coi bói éo ai nói a vắng số chết sớm hết =)))<br>
 ;> nó hay ghen tị vs a vs thỉnh thoảng trù a chết sớm quài chứ gì<br>
 ;> nó chơi đá nặng lắm e, nào là hô a nyc nó, ròi nào nó đơn phương, ròi nào tình iu sâu đậm =)))<br>
-;> thật ra thì nó iu chồng nó =))
+;> thật ra thì nó iu chồng nó =))<br>
+;> ganh tị vs trù chết phá đám mún ngta tồi tệ đi ko phải là tình iu đâu e
