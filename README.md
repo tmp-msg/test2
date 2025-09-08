@@ -11,4 +11,5 @@
 ;> a nghĩ ngon nhất là pc vừa rẻ vừa custom đc, mac thì toàn hàn RAM mà mua máy nhìu RAM là có khi 100 củ<br>
 ;> mac ko có nâng cấp RAM như win á e<br>
 ;> RAM hàn mà e, có tiền a mua 1 con xài cho biết e<br>
-;> mac mua con 24RAM 50 củ là ít
+;> mac mua con 24RAM 50 củ là ít<br>
+;> con giò heo tự nhận nó tốt =)), tốt mà hay ganh tị trù ng khác ngủm khi ngta hơn mình
