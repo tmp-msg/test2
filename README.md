@@ -8,4 +8,4 @@
 ;> ngứa bím hem a gãi giùm cho<br>
 ;> đã đéo tin 9/9 hết năm số 9 mà spam buff tương tác quài<br>
 ;> đang làm cái train bot mà nhập promt vô để ngta train thử e, mà bug hoài =)), móa xài win ko cài đc thư viện kia e ạ<br>
-;>
+;> a nghĩ ngon nhất là pc vừa rẻ vừa custom đc, mac thì toàn hàn RAM mà mua máy nhìu RAM là có khi 100 củ
