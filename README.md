@@ -13,4 +13,5 @@
 ;> RAM hàn mà e, có tiền a mua 1 con xài cho biết e<br>
 ;> mac mua con 24RAM 50 củ là ít<br>
 ;> con giò heo tự nhận nó tốt =)), tốt mà hay ganh tị trù ng khác ngủm khi ngta hơn mình<br>
-;> nó khó tính đó e
+;> nó khó tính đó e<br>
+;> tốt tính mà đi lừa lọc xin tiền ng khác để ăn xài
