@@ -34,4 +34,5 @@
 ;> nó chơi đá đó e<br>
 ;> chứ e nghĩ ai iu e mà trù e chết quài ko, mong e rớt pv, sống ko tiền, lun ganh tị vs e ko<br>
 =)) đéo có ai iu ai mà như z cả<br>
-;> nó chơi đá ngáo cần đó e
+;> nó chơi đá ngáo cần đó e<br>
+;> nó tửng tửng mát mát sao á e, hèn gì ko ai iu nó, có tuổi lấy chồng đại, có chồng con tự bơi tự lo
