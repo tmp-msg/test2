@@ -10,4 +10,4 @@
 ;> đang làm cái train bot mà nhập promt vô để ngta train thử e, mà bug hoài =)), móa xài win ko cài đc thư viện kia e ạ<br>
 ;> a nghĩ ngon nhất là pc vừa rẻ vừa custom đc, mac thì toàn hàn RAM mà mua máy nhìu RAM là có khi 100 củ<br>
 ;> mac ko có nâng cấp RAM như win á e<br>
-;> RAM hàn mà e
+;> RAM hàn mà e, có tiền a mua 1 con xài cho biết e
