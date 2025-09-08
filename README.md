@@ -14,4 +14,6 @@
 ;> mac mua con 24RAM 50 củ là ít<br>
 ;> con giò heo tự nhận nó tốt =)), tốt mà hay ganh tị trù ng khác ngủm khi ngta hơn mình<br>
 ;> nó khó tính đó e<br>
-;> tốt tính mà đi lừa lọc xin tiền ng khác để ăn xài
+;> tốt tính mà đi lừa lọc xin tiền ng khác để ăn xài<br>
+;> nó hô con cái ko tiền thì đi xin ăn chứ đừng xin tiền cha mẹ, nghe xàm lồn e<br>
+;> 
