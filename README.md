@@ -12,4 +12,5 @@
 ;> mac ko có nâng cấp RAM như win á e<br>
 ;> RAM hàn mà e, có tiền a mua 1 con xài cho biết e<br>
 ;> mac mua con 24RAM 50 củ là ít<br>
-;> con giò heo tự nhận nó tốt =)), tốt mà hay ganh tị trù ng khác ngủm khi ngta hơn mình
+;> con giò heo tự nhận nó tốt =)), tốt mà hay ganh tị trù ng khác ngủm khi ngta hơn mình<br>
+;> nó khó tính đó e
