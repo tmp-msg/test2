@@ -19,4 +19,5 @@
 ;> nó ghen tị vì ngta có cha mẹ giàu support cho đó hỉu hem<br>
 ;> nó ko có phước có cha mẹ giàu hay khá giả thì nó phải cố gắng hơn ngta chứ thích sống an nhàn, an phận sao khá<br>
 ;> nó xấu tính hay ganh tị lắm e<br>
-;> ko nên chơi vs những đứa hay ganh tị vs mình e, vì lúc nào nó cũng sợ ngta hơn nó hơn, hay bàn lùi, chê bai
+;> ko nên chơi vs những đứa hay ganh tị vs mình e, vì lúc nào nó cũng sợ ngta hơn nó hơn, hay bàn lùi, chê bai<br>
+;> mấy đứa tính hay ganh tị là nên né nó ra, nó ko mún gì tốt cho mình đâu e<br>
