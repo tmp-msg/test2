@@ -45,4 +45,5 @@
 ;> nó xin chồng, con nó thì hợp lý hơn, chồng con nó, nó phục vụ nào giờ, đéo nhờ vả qq gì sất<br>
 ;> có tình nhân thì xin tiền tình nhân<br>
 ;> 1 xin tiền chồng, ko cho xin tiền ghệ z thôi<br>
-;> quen ghệ phải cho nắc đụ đi chơi mới đc, chứ nằm sình lồn ở nhà xin tiền ai cho
+;> quen ghệ phải cho nắc đụ đi chơi mới đc, chứ nằm sình lồn ở nhà xin tiền ai cho<br>
+;> dưới a mấy bà sồn sồn cỡ tuổi nó ưa có tình nhân đi nhà nghĩ lắm, mấy lớp chồng lun, tuổi hồi xuân mà e
