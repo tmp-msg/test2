@@ -17,4 +17,5 @@
 ;> a coi phim xíu a nhắn nhe e<br>
 ;> <img width="1535" height="1256" alt="image" src="https://github.com/user-attachments/assets/fc305afe-4e62-4036-bddf-2b19d9fe206d" /><br>
 ;> thấy xịn chưa e, chưa test lại e<br>
-;> làm dễ ý mà e, cty maitech cũng tựa tựa như này khác cái nó dùng con AI thông minh hơn trả phí mà e
+;> làm dễ ý mà e, cty maitech cũng tựa tựa như này khác cái nó dùng con AI thông minh hơn trả phí mà e<br>
+;> tùy con mình xài up hình vs thu thập thông tin gợi ý các thứ e
