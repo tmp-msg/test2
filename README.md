@@ -14,4 +14,6 @@
 ;> rảnh e nên tập thể dục đọc sách gì đó ko nên coi xàm lồn nhìu bị nhiễu e nhé<br>
 ;> coi báo nào uy tín tí ít bị tiền mua chuộc thì coi đc e, giờ toàn xạo lồn ko à<br>
 ;> con giò heo lớn tuổi sồn sồn ròi ko lo chồng con còn như đứa trẻ trâu e<br>
-;> a coi phim xíu a nhắn nhe e
+;> a coi phim xíu a nhắn nhe e<br>
+;> <img width="1535" height="1256" alt="image" src="https://github.com/user-attachments/assets/fc305afe-4e62-4036-bddf-2b19d9fe206d" /><br>
+;> thấy xịn chưa e, chưa test lại e
