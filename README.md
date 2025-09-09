@@ -10,4 +10,5 @@
 ;> search éo có ra vụ khác<br>
 ;> cho con học gì có tương lai có tiền mức sống mình tốt là đc e<br>
 ;> hong hỉu sao mà bịp nghe điện thoại bị hack mất tiền trong tk =)))<br>
-;> nhấn nút nghe mà tưởng đâu nhấn link hack ko á e, cơ bản là biết sđt là hack đc ròi e
+;> nhấn nút nghe mà tưởng đâu nhấn link hack ko á e, cơ bản là biết sđt là hack đc ròi e<br>
+;> rảnh e nên tập thể dục đọc sách gì đó ko nên coi xàm lồn nhìu bị nhiễu e nhé
