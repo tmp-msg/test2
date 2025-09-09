@@ -1,4 +1,5 @@
 ;> a nhô ghệ iu<br>
 ;> cơm nước gì chưa e<br>
 ;> a cơm nước gòi e<br>
-;> chờ con laptop load model nảy giờ e
+;> chờ con laptop load model nảy giờ e<br>
+;> xíu a nhắn cho nhe ghệ
