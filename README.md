@@ -5,4 +5,6 @@
 ;> con giò heo nghèo cả đời mà ưa nhảm quá hén e<br>
 ;> số nó nghèo mạc cả đời e<br>
 ;> do nó thích an phận, ổn định lại lấy chồng nghèo nó nghèo + nghèo = nghèo nhìu đời thôi e<br>
-;> cứ đi làm tháng lãnh 4-6.5 củ mà cứ thấy ổn ổn tích lũy bằng tiết kiệm là ko bao giờ giàu, có nước cha mẹ cho hoặc trúng số thôi e
+;> cứ đi làm tháng lãnh 4-6.5 củ mà cứ thấy ổn ổn tích lũy bằng tiết kiệm là ko bao giờ giàu, có nước cha mẹ cho hoặc trúng số thôi e<br>
+;> nó ngu gần chết mà hay nhảm dạy đời dễ sợ e<br>
+;> thích nhàn thích khỏe thân làm công việc đơn giản thì nghèo mãi thôi chứ sao e
