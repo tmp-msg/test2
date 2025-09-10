@@ -9,4 +9,5 @@
 ;> nó ngu gần chết mà hay nhảm dạy đời dễ sợ e<br>
 ;> thích nhàn thích khỏe thân làm công việc đơn giản thì nghèo mãi thôi chứ sao e<br>
 ;> nó ngu bản thân nghèo thích ít ra phải lấy chồng giàu =))<br>
-;> mà mây tầng nào gió tầng đó mà e, trèo cao té dập lồn lun, giàu thì chỉ cưới đồ ngon
+;> mà mây tầng nào gió tầng đó mà e, trèo cao té dập lồn lun, giàu thì chỉ cưới đồ ngon<br>
+;> đéo phải ai nghèo rồi cũng auto giàu đâu e
