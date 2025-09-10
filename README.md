@@ -4,4 +4,5 @@
 ;> lịch sự chat sẽ lưu vào db có 1 người chỉ nhập 1 promt có thể edit đc, a làm cho nó dẫn dắt và gợi ý dựa vào promt ý e<br>
 ;> con giò heo nghèo cả đời mà ưa nhảm quá hén e<br>
 ;> số nó nghèo mạc cả đời e<br>
-;> do nó thích an phận, ổn định lại lấy chồng nghèo nó nghèo + nghèo = nghèo nhìu đời thôi e
+;> do nó thích an phận, ổn định lại lấy chồng nghèo nó nghèo + nghèo = nghèo nhìu đời thôi e<br>
+;> cứ đi làm tháng lãnh 4-6.5 củ mà cứ thấy ổn ổn tích lũy bằng tiết kiệm là ko bao giờ giàu, có nước cha mẹ cho hoặc trúng số thôi e
