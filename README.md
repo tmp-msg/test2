@@ -11,4 +11,5 @@
 ;> nó ngu bản thân nghèo thích ít ra phải lấy chồng giàu =))<br>
 ;> mà mây tầng nào gió tầng đó mà e, trèo cao té dập lồn lun, giàu thì chỉ cưới đồ ngon<br>
 ;> đéo phải ai nghèo rồi cũng auto giàu đâu e<br>
-;> ui kệ mẹ nó e, nó nghèo khổ cũng đéo liên quan gì a =)))
+;> ui kệ mẹ nó e, nó nghèo khổ cũng đéo liên quan gì a =)))<br>
+;> a đang fix bug tí e
