@@ -7,4 +7,6 @@
 ;> do nó thích an phận, ổn định lại lấy chồng nghèo nó nghèo + nghèo = nghèo nhìu đời thôi e<br>
 ;> cứ đi làm tháng lãnh 4-6.5 củ mà cứ thấy ổn ổn tích lũy bằng tiết kiệm là ko bao giờ giàu, có nước cha mẹ cho hoặc trúng số thôi e<br>
 ;> nó ngu gần chết mà hay nhảm dạy đời dễ sợ e<br>
-;> thích nhàn thích khỏe thân làm công việc đơn giản thì nghèo mãi thôi chứ sao e
+;> thích nhàn thích khỏe thân làm công việc đơn giản thì nghèo mãi thôi chứ sao e<br>
+;> nó ngu bản thân nghèo thích ít ra phải lấy chồng giàu =))<br>
+;> mà mây tầng nào gió tầng đó mà e, trèo cao té dập lồn lun, giàu thì chỉ cưới đồ ngon
