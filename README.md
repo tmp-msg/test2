@@ -12,4 +12,5 @@
 ;> mà mây tầng nào gió tầng đó mà e, trèo cao té dập lồn lun, giàu thì chỉ cưới đồ ngon<br>
 ;> đéo phải ai nghèo rồi cũng auto giàu đâu e<br>
 ;> ui kệ mẹ nó e, nó nghèo khổ cũng đéo liên quan gì a =)))<br>
-;> a đang fix bug tí e
+;> a đang fix bug tí e<br>
+;> lâu lâu lên fb,tittok nhấn bừa 1 cái xong out ra cho giò heo spam chơi e =))
