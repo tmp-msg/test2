@@ -4,4 +4,5 @@
 ;> coi từ lúc bắt đầu chơi đi e<br>
 ;> hem biết e có mồ côi ko, nhưng game nội dung hay e<br>
 ;> có mấy ending lận<br>
-;> a iu mới coi hôm qua hay nên giới thiệu e
+;> a iu mới coi hôm qua hay nên giới thiệu e<br>
+;> coi nhe e chồng ngủ trước đây
