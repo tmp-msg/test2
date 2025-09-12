@@ -10,4 +10,5 @@
 ;> nào giờ a chưa coi bài tarot bao giờ, cũng đéo tin lắm<br>
 ;> có cái bà kia gần nhà a nói trúng 1 lần á biết sao ngta hô bả có ngta dựa<br>
 ;> bả nói lần 2 coi trúng ko, ngta nói free thôi e ko có thu tiền<br>
-;> bả có vong dựa á hỉu hem
+;> bả có vong dựa á hỉu hem<br>
+;> coi giùm cho a có 2 lần thôi e
