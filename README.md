@@ -16,4 +16,6 @@
 ;> éo trúng là lần 1 hên đúng thôi e<br>
 ;> tuổi a là tuổi kiếm tiền chứ học hành gì tầm này e, nhìu ng ngta học đh mà ngta sống sung sướng tiền tỉ ngon lành<br>
 ;> như e vs thg cha giám đốc cty cũ a cũng bằng đh mà kiếm tiền cũng ngon z<br>
-;> nếu có nhân quả thì a mong giò heo sẽ bị trời phạt vì hãm hại a
+;> nếu có nhân quả thì a mong giò heo sẽ bị trời phạt vì hãm hại a<br>
+;> có chồng con ròi còn ảo tưởng ai iu đương gì mình đéo hỉu<br>
+;>
