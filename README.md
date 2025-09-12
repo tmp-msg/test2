@@ -26,4 +26,6 @@
 ;> đời a là ai giúp mình ko tính toán vụ lợi là a ít khi nào quên lắm<br>
 ;> viết xong con chatbot xong ẩn code quan trọng bớt e =)))<br>
 =))) cho đéo làm đc tự mò chơi e<br>
-;> toàn dân ăn cháo đá bát ko à, ko nên cho soi code e
+;> toàn dân ăn cháo đá bát ko à, ko nên cho soi code e<br>
+;> giống như cái thg "An ko ngán " trên tiktok z, share ý tưởng khởi nghiệp để ngta hỗ trợ hay support gì đó ai dè đéo đc qq gì còn bị ăn cắp ý tưởng<br>
+;> đời là z đó e
