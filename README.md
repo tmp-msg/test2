@@ -18,4 +18,4 @@
 ;> như e vs thg cha giám đốc cty cũ a cũng bằng đh mà kiếm tiền cũng ngon z<br>
 ;> nếu có nhân quả thì a mong giò heo sẽ bị trời phạt vì hãm hại a<br>
 ;> có chồng con ròi còn ảo tưởng ai iu đương gì mình đéo hỉu<br>
-;>
+;> năm 2028 năm tuổi nó e, năm đó nó sẽ bị quật =))
