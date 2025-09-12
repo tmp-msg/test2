@@ -19,4 +19,5 @@
 ;> nếu có nhân quả thì a mong giò heo sẽ bị trời phạt vì hãm hại a<br>
 ;> có chồng con ròi còn ảo tưởng ai iu đương gì mình đéo hỉu<br>
 ;> năm 2028 năm tuổi nó e, năm đó nó sẽ bị quật =))<br>
-;> tính a thù dai lắm, ai làm gì đối vs a, a nhớ hết
+;> tính a thù dai lắm, ai làm gì đối vs a, a nhớ hết<br>
+;> có tiền dư giả thì chắc ai cũng từ thiện e nhỉ, a cũng z mà tài chính ko cho phép =)), con yến tửng có cl a cho, 5k cũng đéo cho
