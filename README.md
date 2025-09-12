@@ -35,4 +35,5 @@
 <img width="1988" height="1455" alt="image" src="https://github.com/user-attachments/assets/a0ee4349-03e6-485c-b790-6f91dea0fe2c" /><br>
 ;> oke chưa e hay sao sao??<br>
 <img width="1538" height="1348" alt="image" src="https://github.com/user-attachments/assets/8561cff5-d08e-4b57-8e71-b763aa97df2e" /><br>
-;> xịn chưa e
+;> xịn chưa e<br>
+;> phần promt tại chưa update nên nó ko hiện ý e, chứ promt là yêu cầu món ăn
