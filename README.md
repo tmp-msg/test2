@@ -14,4 +14,5 @@
 ;> coi giùm cho a có 2 lần thôi e, sai ngày nhưng có thật 1 lần<br>
 ;> coi lần 2 trúng là vip lun<br>
 ;> éo trúng là lần 1 hên đúng thôi e<br>
-;> tuổi a là tuổi kiếm tiền chứ học hành gì tầm này e, nhìu ng ngta học đh mà ngta sống sung sướng tiền tỉ ngon lành
+;> tuổi a là tuổi kiếm tiền chứ học hành gì tầm này e, nhìu ng ngta học đh mà ngta sống sung sướng tiền tỉ ngon lành<br>
+;> như e vs thg cha giám đốc cty cũ a cũng bằng đh mà kiếm tiền cũng ngon z
