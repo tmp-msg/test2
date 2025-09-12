@@ -25,4 +25,5 @@
 ;> hay mới cúng chứ e, tính ra a cũng tính toán thật =))<br>
 ;> đời a là ai giúp mình ko tính toán vụ lợi là a ít khi nào quên lắm<br>
 ;> viết xong con chatbot xong ẩn code quan trọng bớt e =)))<br>
-=))) cho đéo làm đc tự mò chơi e
+=))) cho đéo làm đc tự mò chơi e<br>
+;> toàn dân ăn cháo đá bát ko à, ko nên cho soi code e
