@@ -23,4 +23,6 @@
 ;> có tiền dư giả thì chắc ai cũng từ thiện e nhỉ, a cũng z mà tài chính ko cho phép =)), con yến tửng có cl a cho, 5k cũng đéo cho<br>
 ;> chỗ miếu ở quận 11 hô vài năm nữa a có tiền lắm, nếu đúng thì a cúng vườn ko thì thôi<br>
 ;> hay mới cúng chứ e, tính ra a cũng tính toán thật =))<br>
-;> đời a là ai giúp mình ko tính toán vụ lợi là a ít khi nào quên lắm
+;> đời a là ai giúp mình ko tính toán vụ lợi là a ít khi nào quên lắm<br>
+;> viết xong con chatbot xong ẩn code quan trọng bớt e =)))<br>
+=))) cho đéo làm đc tự mò chơi e
