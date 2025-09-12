@@ -28,4 +28,5 @@
 =))) cho đéo làm đc tự mò chơi e<br>
 ;> toàn dân ăn cháo đá bát ko à, ko nên cho soi code e<br>
 ;> giống như cái thg "An ko ngán " trên tiktok z, share ý tưởng khởi nghiệp để ngta hỗ trợ hay support gì đó ai dè đéo đc qq gì còn bị ăn cắp ý tưởng<br>
-;> đời là z đó e
+;> đời là z đó e<br>
+;> cho soi code biết hết,apply đéo mướn thì sao e =)))
