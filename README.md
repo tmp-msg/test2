@@ -31,4 +31,6 @@
 ;> đời là z đó e<br>
 ;> cho soi code biết hết,apply đéo mướn thì sao e =)))<br>
 ;> có thg lồn nào ưa soi code của a để support cty nó, mà đợt apply nó thì đéo mướn vl<br>
-;> mấy cty việt nam lươn lẹo để làm giàu cho bản thân mua nhà mua xe nhìu lắm e
+;> mấy cty việt nam lươn lẹo để làm giàu cho bản thân mua nhà mua xe nhìu lắm e<br>
+<img width="1988" height="1455" alt="image" src="https://github.com/user-attachments/assets/a0ee4349-03e6-485c-b790-6f91dea0fe2c" /><br>
+;> oke chưa e hay sao sao??
