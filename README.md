@@ -20,4 +20,5 @@
 ;> có chồng con ròi còn ảo tưởng ai iu đương gì mình đéo hỉu<br>
 ;> năm 2028 năm tuổi nó e, năm đó nó sẽ bị quật =))<br>
 ;> tính a thù dai lắm, ai làm gì đối vs a, a nhớ hết<br>
-;> có tiền dư giả thì chắc ai cũng từ thiện e nhỉ, a cũng z mà tài chính ko cho phép =)), con yến tửng có cl a cho, 5k cũng đéo cho
+;> có tiền dư giả thì chắc ai cũng từ thiện e nhỉ, a cũng z mà tài chính ko cho phép =)), con yến tửng có cl a cho, 5k cũng đéo cho<br>
+;> chỗ miếu ở quận 11 hô vài năm nữa a có tiền lắm, nếu đúng thì a cúng vườn ko thì thôi
