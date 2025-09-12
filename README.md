@@ -9,4 +9,5 @@
 ;> nhìu khi ngta ko giúp đc mình thì mình nên đi chỗ khác hay hơn đề giải quyết vấn đề bản thân<br>
 ;> nào giờ a chưa coi bài tarot bao giờ, cũng đéo tin lắm<br>
 ;> có cái bà kia gần nhà a nói trúng 1 lần á biết sao ngta hô bả có ngta dựa<br>
-;> bả nói lần 2 coi trúng ko, ngta nói free thôi e ko có thu tiền
+;> bả nói lần 2 coi trúng ko, ngta nói free thôi e ko có thu tiền<br>
+;> bả có vong dựa á hỉu hem
