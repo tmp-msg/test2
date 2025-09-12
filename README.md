@@ -7,4 +7,6 @@
 ;> năm nay năm số 9 mà đéo thanh lọc con yyến tửng là vụ thần số học này bị đéo hay đâu e, đéo tin đc e<br>
 ;> đi chuà đi miếu mả đéo hay là a ko đi nữa a đi chỗ khác<br>
 ;> nhìu khi ngta ko giúp đc mình thì mình nên đi chỗ khác hay hơn đề giải quyết vấn đề bản thân<br>
-;> nào giờ a chưa coi bài tarot bao giờ, cũng đéo tin lắm
+;> nào giờ a chưa coi bài tarot bao giờ, cũng đéo tin lắm<br>
+;> có cái bà kia gần nhà a nói trúng 1 lần á biết sao ngta hô bả có ngta dựa<br>
+;> bả nói lần 2 coi trúng ko, ngta nói free thôi e ko có thu tiền
