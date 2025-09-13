@@ -7,4 +7,5 @@
 ;> e cơm nước xong chưa e<br>
 ;> mai a đi chùa vs mẹ<br>
 ;> nay chắc a ngủ sớm e<br>
-;> mới fix xong e, tý quay video demo
+;> mới fix xong e, tý quay video demo<br>
+;> mai coi nhé e, nay chồng ngủ sớm
