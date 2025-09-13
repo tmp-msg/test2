@@ -5,4 +5,5 @@
 ;> chắc đéo bắt chước làm đc đâu e<br>
 ;> do dùng con model nhỏ quá hơi khó train e<br>
 ;> e cơm nước xong chưa e<br>
-;> mai a đi chùa vs mẹ
+;> mai a đi chùa vs mẹ<br>
+;> nay chắc a ngủ sớm e
