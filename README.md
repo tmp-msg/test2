@@ -6,4 +6,5 @@
 ;> do dùng con model nhỏ quá hơi khó train e<br>
 ;> e cơm nước xong chưa e<br>
 ;> mai a đi chùa vs mẹ<br>
-;> nay chắc a ngủ sớm e
+;> nay chắc a ngủ sớm e<br>
+;> mới fix xong e, tý quay video demo
