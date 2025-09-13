@@ -8,4 +8,5 @@
 ;> mai a đi chùa vs mẹ<br>
 ;> nay chắc a ngủ sớm e<br>
 ;> mới fix xong e, tý quay video demo<br>
-;> mai coi nhé e, nay chồng ngủ sớm
+;> mai coi nhé e, nay chồng ngủ sớm<br>
+;> coi full từ đầu đến đít e nhé
