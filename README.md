@@ -15,4 +15,5 @@
 ;> tối thủ răm cho dể ngủ à e<br>
 ;> ngủ vs e a bận 2 3 cái quần cho chắc ăn e<br>
 ;> của e nhìn chắc a nungf lắm =))<br>
-;> sáng nay a ngủ z a lạnh vãi lun e
+;> sáng nay a ngủ z a lạnh vãi lun e<br>
+;> tối ngủ e chỉ cần ôm a là đc e
