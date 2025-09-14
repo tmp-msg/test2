@@ -11,4 +11,4 @@
 ;> nhìu ng ngta ghiền mua vé số á e, cứ một ngày vài tờ<br>
 ;> hem có gì coi hết e<br>
 ;> đi chùa xin thấy linh thì chắc a đi cúng thôi e<br>
-;> 
+;> a thích ăn ốc e, nào hẹn hò mình ăn ốc e
