@@ -8,4 +8,4 @@
 ;> có đi mấy chỗ mà ngta chet xin số đề quýnh đề thì có e =)))<br>
 ;> giàu nghèo có số mà e<br>
 ;> ông chồng bà dì a mua vé số mấy năm mới trúng vài tờ đc vài chục triệu<br>
-;> 
+;> nhìu ng ngta ghiền mua vé số á e, cứ một ngày vài tờ
