@@ -5,4 +5,5 @@
 ;> a hong<br>
 ;> đi chùa cầu trúng số vài tỉ là tham lam<br>
 ;> ngta cầu có tiền trả nợ thôi e<br>
-;> có đi mấy chỗ mà ngta chet xin số đề quýnh đề thì có e =)))
+;> có đi mấy chỗ mà ngta chet xin số đề quýnh đề thì có e =)))<br>
+;> giàu nghèo có số mà e
