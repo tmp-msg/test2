@@ -13,4 +13,5 @@
 ;> a đang đưa option để e học nấu ăn chứ hong gì e<br>
 ;> tối tối e thường làm gì e, có thích xem phim hem<br>
 ;> tối thủ răm cho dể ngủ à e<br>
-;> ngủ vs e a bận 2 3 cái quần cho chắc ăn e
+;> ngủ vs e a bận 2 3 cái quần cho chắc ăn e<br>
+;> của e nhìn chắc a nungf lắm =))
