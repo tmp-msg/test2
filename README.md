@@ -13,4 +13,5 @@
 ;> đi chùa xin thấy linh thì chắc a đi cúng thôi e<br>
 ;> a thích ăn ốc e, nào hẹn hò mình ăn ốc e<br>
 ;> e thấy a xài đt mới là a có tiền thôi e, laptop a ngày xưa a mua 25 củ á<br>
-;> có tiền a đổi mới hết, e nhìn e biết mà
+;> có tiền a đổi mới hết, e nhìn e biết mà<br>
+;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi
