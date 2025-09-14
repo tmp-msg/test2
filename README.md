@@ -15,4 +15,5 @@
 ;> e thấy a xài đt mới là a có tiền thôi e, laptop a ngày xưa a mua 25 củ á<br>
 ;> có tiền a đổi mới hết, e nhìn e biết mà<br>
 ;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi<br>
-;> dì a xưa chạy vision ghẻ chứ làm có tiền đổi con vespa cỡ 70-80 củ á e
+;> dì a xưa chạy vision ghẻ chứ làm có tiền đổi con vespa cỡ 70-80 củ á e<br>
+;> đt là iphone mẫu mới ra là lên đời đó e
