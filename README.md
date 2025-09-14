@@ -9,4 +9,6 @@
 ;> giàu nghèo có số mà e<br>
 ;> ông chồng bà dì a mua vé số mấy năm mới trúng vài tờ đc vài chục triệu<br>
 ;> nhìu ng ngta ghiền mua vé số á e, cứ một ngày vài tờ<br>
-;> hem có gì coi hết e
+;> hem có gì coi hết e<br>
+;> đi chùa xin thấy linh thì chắc a đi cúng thôi e<br>
+;> 
