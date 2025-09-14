@@ -7,4 +7,7 @@
 ;> a thích vô thẳng vấn đề trọng tâm thôi<br>
 ;> a cũng có 1 thời gian mua sách ròi e, mà nhận ra mình ko thích ko mún làm thì nên next e<br> 
 ;> mua xong quăng xó cả năm chả đụng tới, thật lun e<br>
-;> a thích ăn ốc, hải sản, đặc biệt là sò lông của e =))
+;> a thích ăn ốc, hải sản, đặc biệt là sò lông của e =))<br>
+;> đùa chứ a thích ăn hải sản thật<br>
+;> làm như già ròi ko thích ăn bánh tráng trộn nữa e<br>
+;> a đang đưa option để e học nấu ăn chứ hong gì e
