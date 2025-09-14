@@ -14,4 +14,5 @@
 ;> tối tối e thường làm gì e, có thích xem phim hem<br>
 ;> tối thủ răm cho dể ngủ à e<br>
 ;> ngủ vs e a bận 2 3 cái quần cho chắc ăn e<br>
-;> của e nhìn chắc a nungf lắm =))
+;> của e nhìn chắc a nungf lắm =))<br>
+;> sáng nay a ngủ z a lạnh vãi lun e
