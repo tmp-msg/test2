@@ -11,4 +11,6 @@
 ;> nhìu ng ngta ghiền mua vé số á e, cứ một ngày vài tờ<br>
 ;> hem có gì coi hết e<br>
 ;> đi chùa xin thấy linh thì chắc a đi cúng thôi e<br>
-;> a thích ăn ốc e, nào hẹn hò mình ăn ốc e
+;> a thích ăn ốc e, nào hẹn hò mình ăn ốc e<br>
+;> e thấy a xài đt mới là a có tiền thôi e, laptop a ngày xưa a mua 25 củ á<br>
+;> có tiền a đổi mới hết, e nhìn e biết mà
