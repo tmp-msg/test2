@@ -19,4 +19,5 @@
 ;> đt là iphone mẫu mới ra là lên đời đó e<br>
 ;> ko mua quần áo nữa chán ròi e<br>
 ;> có tuổi ròi phải lo làm tích lũy chứ e, có thể mua đất xây nhà gì đó<br>
-;> cơ bản là gia đình a ko nhờ cậy đc, nuôi a tới khi hết tuổi ăn học là thôi à
+;> cơ bản là gia đình a ko nhờ cậy đc, nuôi a tới khi hết tuổi ăn học là thôi à<br>
+;> mấy nay có nungfd lon hem e
