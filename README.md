@@ -16,4 +16,5 @@
 ;> có tiền a đổi mới hết, e nhìn e biết mà<br>
 ;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi<br>
 ;> dì a xưa chạy vision ghẻ chứ làm có tiền đổi con vespa cỡ 70-80 củ á e<br>
-;> đt là iphone mẫu mới ra là lên đời đó e
+;> đt là iphone mẫu mới ra là lên đời đó e<br>
+;> ko mua quần áo nữa chán ròi e
