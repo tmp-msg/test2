@@ -14,4 +14,5 @@
 ;> a thích ăn ốc e, nào hẹn hò mình ăn ốc e<br>
 ;> e thấy a xài đt mới là a có tiền thôi e, laptop a ngày xưa a mua 25 củ á<br>
 ;> có tiền a đổi mới hết, e nhìn e biết mà<br>
-;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi
+;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi<br>
+;> dì a xưa chạy vision ghẻ chứ làm có tiền đổi con vespa cỡ 70-80 củ á e
