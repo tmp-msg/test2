@@ -17,4 +17,6 @@
 ;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi<br>
 ;> dì a xưa chạy vision ghẻ chứ làm có tiền đổi con vespa cỡ 70-80 củ á e<br>
 ;> đt là iphone mẫu mới ra là lên đời đó e<br>
-;> ko mua quần áo nữa chán ròi e
+;> ko mua quần áo nữa chán ròi e<br>
+;> có tuổi ròi phải lo làm tích lũy chứ e, có thể mua đất xây nhà gì đó<br>
+;> cơ bản là gia đình a ko nhờ cậy đc, nuôi a tới khi hết tuổi ăn học là thôi à
