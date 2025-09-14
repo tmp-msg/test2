@@ -10,4 +10,5 @@
 ;> a thích ăn ốc, hải sản, đặc biệt là sò lông của e =))<br>
 ;> đùa chứ a thích ăn hải sản thật<br>
 ;> làm như già ròi ko thích ăn bánh tráng trộn nữa e<br>
-;> a đang đưa option để e học nấu ăn chứ hong gì e
+;> a đang đưa option để e học nấu ăn chứ hong gì e<br>
+;> tối tối e thường làm gì e, có thích xem phim hem
