@@ -1,23 +1,2 @@
-;> tại sử dụng con model AI nhỏ qua e, chỉ chạy trên CPU nên AI nó rep chậm thôi e<br>
-;> thấy oke hem e<br>
-;> ghệ a mấy nay nungf lon đều đều hem e<br>
-;> e đi chùa có cầu trúng số bao giờ hem e<br>
-;> a hong<br>
-;> đi chùa cầu trúng số vài tỉ là tham lam<br>
-;> ngta cầu có tiền trả nợ thôi e<br>
-;> có đi mấy chỗ mà ngta chet xin số đề quýnh đề thì có e =)))<br>
-;> giàu nghèo có số mà e<br>
-;> ông chồng bà dì a mua vé số mấy năm mới trúng vài tờ đc vài chục triệu<br>
-;> nhìu ng ngta ghiền mua vé số á e, cứ một ngày vài tờ<br>
-;> hem có gì coi hết e<br>
-;> đi chùa xin thấy linh thì chắc a đi cúng thôi e<br>
-;> a thích ăn ốc e, nào hẹn hò mình ăn ốc e<br>
-;> e thấy a xài đt mới là a có tiền thôi e, laptop a ngày xưa a mua 25 củ á<br>
-;> có tiền a đổi mới hết, e nhìn e biết mà<br>
-;> có tiền phải hưởng thụ chứ e quan điểm a z, để dành 1 phần thôi<br>
-;> dì a xưa chạy vision ghẻ chứ làm có tiền đổi con vespa cỡ 70-80 củ á e<br>
-;> đt là iphone mẫu mới ra là lên đời đó e<br>
-;> ko mua quần áo nữa chán ròi e<br>
-;> có tuổi ròi phải lo làm tích lũy chứ e, có thể mua đất xây nhà gì đó<br>
-;> cơ bản là gia đình a ko nhờ cậy đc, nuôi a tới khi hết tuổi ăn học là thôi à<br>
-;> mấy nay có nungfd lon hem e
+;> mấy nay có nungfd lon hem e<br>
+;> éo có gì coi hết chắc nay a ngủ sớm e
