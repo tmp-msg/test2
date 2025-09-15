@@ -5,4 +5,5 @@
 ;> mấy nay có móc lavabo hong e<br>
 ;> chỉ ngủ chung thôi chắc e ko  chịu đc<br>
 ;> a sẽ xoa xoa mép đùi e cho e nugff ko chịu đc<br>
-;> kiểu như là e ngon quá nhum nhum nhem nhem cho a ăn nhen
+;> kiểu như là e ngon quá nhum nhum nhem nhem cho a ăn nhen<br>
+;> ngủ đi e, ngũ ngon
