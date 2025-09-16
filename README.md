@@ -8,4 +8,5 @@
 ;> nào lễ tết e mún đi chơi vs a thì nhắn a nhé<br>
 ;> lâu lâu a quạo chuyện khác nên mắng mỏ e z thôi<br>
 ;> thấy a ko vui là né a ra nhé<br>
-;> hẹn hò vs a a làm đồ handmade tặng e nhé
+;> hẹn hò vs a a làm đồ handmade tặng e nhé<br>
+;> lâu hẹn hò quá a quên à coi như hong hứa à
