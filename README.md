@@ -24,4 +24,5 @@
 ;> mà cho tiền con nít thì nhìu khi cha mẹ nó thấy nó xin có tiền quá cho nó nghỉ học để xin tiền<br>
 ;> đứa a ghét dù nó nghèo khổ cỡ nào a cũng đéo cho tiền<br>
 ;> a thù dai lắm<br>
-;> kiểu như là "đéo có cl gì từ t" =))
+;> kiểu như là "đéo có cl gì từ t" =))<br>
+;> e chắc thích tắm chung vs a lắm, kiểu như rửa mắt z đó
