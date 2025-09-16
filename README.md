@@ -26,4 +26,5 @@
 ;> a thù dai lắm<br>
 ;> kiểu như là "đéo có cl gì từ t" =))<br>
 ;> e chắc thích tắm chung vs a lắm, kiểu như rửa mắt z đó<br>
-;> a cũng đc rửa mắt lun
+;> a cũng đc rửa mắt lun<br>
+;> ngắm e từ lúc dú săn chắc tới lúc xệ
