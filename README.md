@@ -15,4 +15,6 @@
 ;> a cũng đc rửa mắt lun<br>
 ;> ngắm e từ lúc dú săn chắc tới lúc xệ<br>
 ;> tắm chung a vài lần chắc e sáng mắt lắm<br>
-;> coi của a nhìu hay ít lông chứ gì
+;> coi của a nhìu hay ít lông chứ gì<br>
+<img width="536" height="316" alt="image" src="https://github.com/user-attachments/assets/dff9f4f8-2ba0-4668-bfcd-49311e3d61bd" /><br>
+;> lông mu của a =))
