@@ -7,4 +7,5 @@
 ;> biết e hay móc lavabo nên a gợi dục cho e dễ ngủ<br>
 ;> nào lễ tết e mún đi chơi vs a thì nhắn a nhé<br>
 ;> lâu lâu a quạo chuyện khác nên mắng mỏ e z thôi<br>
-;> thấy a ko vui là né a ra nhé
+;> thấy a ko vui là né a ra nhé<br>
+;> hẹn hò vs a a làm đồ handmade tặng e nhé
