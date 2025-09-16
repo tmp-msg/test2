@@ -12,4 +12,5 @@
 ;> lâu hẹn hò quá a quên à coi như hong hứa à<br>
 ;> thôi mà a thấy nó rẻ tiền quá a hong làm đâu, dẹp vụ handmade đi e<br>
 ;> e sợ a hong chịu cưới e hay gì e<br>
-;> iu đc thì vài năm nửa ở chung e nhó
+;> iu đc thì vài năm nửa ở chung e nhó<br>
+;> sao hổm rài hem thấy e đòi cưới nửa, chắc là "chắc cú của bà ròi " chứ gì
