@@ -22,4 +22,5 @@
 ;> người có số mà e, cố tới đâu thì tới thôi e<br>
 ;> a có tiền thì con nít người già xin tiền a vẫn cho<br>
 ;> mà cho tiền con nít thì nhìu khi cha mẹ nó thấy nó xin có tiền quá cho nó nghỉ học để xin tiền<br>
-;> đứa a ghét dù nó nghèo khổ cỡ nào a cũng đéo cho tiền
+;> đứa a ghét dù nó nghèo khổ cỡ nào a cũng đéo cho tiền<br>
+;> a thù dai lắm
