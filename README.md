@@ -11,4 +11,5 @@
 ;> nhìu khi ngta sống ttiêu cực ngta bịa chuyện thôi e<br>
 ;> e có lông đít ko e<br>
 ;> chắc có mà ít =)))<br>
-;> để mốt a kiểm tra của e =))
+;> để mốt a kiểm tra của e =))<br>
+;> mấy cái người sống tiêu cực ko là gì quạn trọng của mình thì kệ họ đi e<br>
