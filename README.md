@@ -8,4 +8,5 @@
 ;> mua bán đất cũng đóng thuế hay sao á e, hút máu thật<br>
 ;> tinh gọn tỉnh cắt giảm nhân sự nhà nước để giảm chi tăng thu thuế để lụm tiền<br>
 ;> trên mạng toàn rác ko à e<br>
-;> nhìu khi ngta sống ttiêu cực ngta bịa chuyện thôi e
+;> nhìu khi ngta sống ttiêu cực ngta bịa chuyện thôi e<br>
+;> e có lông đít ko e
