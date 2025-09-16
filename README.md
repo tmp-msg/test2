@@ -5,4 +5,5 @@
 ;> để hình lông mu nhìn ghê thật e<br>
 ;> e tắm cho a chắc e ko hồi hộp đâu, e rửa mắt<br>
 ;> biết e hay móc lavabo nên a gợi dục cho e dễ ngủ<br>
-;> nào lễ tết e mún đi chơi vs a thì nhắn a nhé
+;> nào lễ tết e mún đi chơi vs a thì nhắn a nhé<br>
+;> lâu lâu a quạo chuyện khác nên mắng mỏ e z thôi
