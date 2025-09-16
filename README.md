@@ -17,4 +17,5 @@
 ;> chơi mà kéo ngta xuống chơi làm gì hen e<br>
 ;> bạn bè a toàn cỡ tuổi a thôi e, a ko có chơi vs nhỏ hay già hơn e<br>
 ;> a chơi vs bạn bè mà nó ganh tị vs a bàn ra bàn vô là dễ biết lắm<br>
-;> khi mà nghe lời khuyên từ ng khác là a suy nghĩ coi ngta muốn xấu hay tốt cho mình liền e
+;> khi mà nghe lời khuyên từ ng khác là a suy nghĩ coi ngta muốn xấu hay tốt cho mình liền e<br>
+;> mấy ng sống tiêu cực á phần lớn là do cuộc sống cũa ngta ko bằng ai túng tiền, đổ nợ, hoặc xấu tính hay ganh ghét ganh tị , e có khuyên hay động viên ngta cũng z thôi e, rước phiền vào ng
