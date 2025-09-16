@@ -27,4 +27,5 @@
 ;> kiểu như là "đéo có cl gì từ t" =))<br>
 ;> e chắc thích tắm chung vs a lắm, kiểu như rửa mắt z đó<br>
 ;> a cũng đc rửa mắt lun<br>
-;> ngắm e từ lúc dú săn chắc tới lúc xệ
+;> ngắm e từ lúc dú săn chắc tới lúc xệ<br>
+;> tắm chung e vài lần chắc e sáng mắt lắm
