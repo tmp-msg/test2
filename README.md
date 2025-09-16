@@ -15,4 +15,5 @@
 ;> mấy cái người sống tiêu cực ko là gì quan trọng của mình thì kệ họ đi e<br>
 ;> tính a ai mà kéo a xuống là a cũng ko chơi hay tiếp xúc gì nữa<br>
 ;> chơi mà kéo ngta xuống chơi làm gì hen e<br>
-;> bạn bè a toàn cỡ tuổi a thôi e, a ko có chơi vs nhỏ hay già hơn e
+;> bạn bè a toàn cỡ tuổi a thôi e, a ko có chơi vs nhỏ hay già hơn e<br>
+;> a chơi vs bạn bè mà nó ganh tị vs a bàn ra bàn vô là dễ biết lắm
