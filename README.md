@@ -6,4 +6,6 @@
 ;> vàng chắc rẻ lắm 8-10 củ 1 chỉ thôi e, ko rẻ hơn đc e, có tiền mua vàng tránh lạm phát e<br>
 ;> nhà nước giờ thu thuế nhìu để miễn này miễn kia đó e<br>
 ;> mua bán đất cũng đóng thuế hay sao á e, hút máu thật<br>
-;> tinh gọn tỉnh cắt giảm nhân sự nhà nước để giảm chi tăng thu thuế để lụm tiền
+;> tinh gọn tỉnh cắt giảm nhân sự nhà nước để giảm chi tăng thu thuế để lụm tiền<br>
+;> trên mạng toàn rác ko à e<br>
+;> nhìu khi ngta sống ttiêu cực ngta bịa chuyện thôi e
