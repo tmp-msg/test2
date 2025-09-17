@@ -15,4 +15,5 @@
 ;> bạn bè a là toàn những đứa 2k thôi e nhó<br>
 ;> a ko có chơi vs ai cỡ tuổi a chị mình đâu toàn bằng tuổi bạn đại học ý<br>
 ;> e chắc có tu nên gặp a =))<br>
-;> ko gặp a là giờ e còn FA
+;> ko gặp a là giờ e còn FA<br>
+;> e đi chơi a sẽ kiêm thợ chụp hình cho e vừa xã nungf cho e
