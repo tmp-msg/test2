@@ -14,4 +14,5 @@
 ;> này là lừa tiền thiện e<br>
 ;> bạn bè a là toàn những đứa 2k thôi e nhó<br>
 ;> a ko có chơi vs ai cỡ tuổi a chị mình đâu toàn bằng tuổi bạn đại học ý<br>
-;> e chắc có tu nên gặp a =))
+;> e chắc có tu nên gặp a =))<br>
+;> ko gặp a là giờ e còn FA
