@@ -7,4 +7,6 @@
 ;> móa tham lam vl lun e, đi chùa phật nào xin trúng vài tờ đặc biệt =)))<br>
 ;> 1 ngày mua 100 tờ may ra trúng e<br>
 ;> tối làm đũy mua 100 tờ vé số =))), bay 1 củ/ ngày may ra ăn tờ đặc biệt e<br>
-;> a ko ham trúng số
+;> a ko ham trúng số<br>
+;> mạng giờ bịp lắm e, ăn cắp video xong xin tiền =))<br>
+;> loại này là thất đức lừa gạt lừa đảo ăn chặn tiền từ thiện<br>
