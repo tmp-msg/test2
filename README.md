@@ -24,4 +24,5 @@
 ;> e đang tuổi sung mãn hả<br>
 ;> tối ngủ chung a là đc e<br>
 ;> ghệ răm bùn ngủ chưa e<br>
-;> vy tửng bùn ngủ chưa e
+;> vy tửng bùn ngủ chưa e<br>
+;> vợ a nói nhìu y như con bạn a chơi z
