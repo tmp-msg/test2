@@ -18,4 +18,5 @@
 ;> ko gặp a là giờ e còn FA<br>
 ;> e đi chơi a sẽ kiêm thợ chụp hình cho e vừa xã nungf cho e<br>
 ;> nhu cầu của e là 1 tuần 14 lần =)), chết lun<br>
-;> a lâu lâu mới nungf
+;> a lâu lâu mới nungf<br>
+;> ngày 2 lần 1 tháng 60 lần e
