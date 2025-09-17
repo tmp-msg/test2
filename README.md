@@ -5,4 +5,6 @@
 ;> nào là giả thần phật mẹ cho trúng 5 tờ đặc biệt 10 tỉ con trích ra 500 triệu từ thiện mẹ độ =))<br>
 ;> chơi đá hay gì á e, éo mua tờ vé số nào đòi trúng số, mua tờ nào tiếc tiền tờ đó đòi trúng số<br>
 ;> móa tham lam vl lun e, đi chùa phật nào xin trúng vài tờ đặc biệt =)))<br>
-;> 1 ngày mua 100 tờ may ra trúng e
+;> 1 ngày mua 100 tờ may ra trúng e<br>
+;> tối làm đũy mua 100 tờ vé số =))), bay 1 củ/ ngày may ra ăn tờ đặc biệt e<br>
+;> a ko ham trúng số
