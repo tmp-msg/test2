@@ -17,4 +17,4 @@
 ;> e chắc có tu nên gặp a =))<br>
 ;> ko gặp a là giờ e còn FA<br>
 ;> e đi chơi a sẽ kiêm thợ chụp hình cho e vừa xã nungf cho e<br>
-;> nhu cầu của e là 1 tuần 14 lần =))
+;> nhu cầu của e là 1 tuần 14 lần =)), chết lun
