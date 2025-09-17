@@ -25,4 +25,5 @@
 ;> tối ngủ chung a là đc e<br>
 ;> ghệ răm bùn ngủ chưa e<br>
 ;> vy tửng bùn ngủ chưa e<br>
-;> vợ a nói nhìu y như con bạn a chơi z
+;> vợ a nói nhìu y như con bạn a chơi z<br>
+;> mai a nhắ sớm tí để e ngủ sớm, thôi khuya ròi ngủ đi e
