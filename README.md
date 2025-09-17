@@ -4,4 +4,5 @@
 ;> ít ra xin tiền phải lú cái mặt quay nhà cửa hoàn cảnh sao ngta mới cho tiền e<br>
 ;> nào là giả thần phật mẹ cho trúng 5 tờ đặc biệt 10 tỉ con trích ra 500 triệu từ thiện mẹ độ =))<br>
 ;> chơi đá hay gì á e, éo mua tờ vé số nào đòi trúng số, mua tờ nào tiếc tiền tờ đó đòi trúng số<br>
-;> móa tham lam vl lun e, đi chùa phật nào xin trúng vài tờ đặc biệt =)))
+;> móa tham lam vl lun e, đi chùa phật nào xin trúng vài tờ đặc biệt =)))<br>
+;> 1 ngày mua 100 tờ may ra trúng e
