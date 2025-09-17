@@ -10,3 +10,4 @@
 ;> a ko ham trúng số<br>
 ;> mạng giờ bịp lắm e, ăn cắp video xong xin tiền =))<br>
 ;> loại này là thất đức lừa gạt lừa đảo ăn chặn tiền từ thiện<br>
+;> ko tiền 1 là xin cha mẹ 2 là xin vợ chồng 3 là con cái hết e
