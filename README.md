@@ -16,4 +16,5 @@
 ;> a ko có chơi vs ai cỡ tuổi a chị mình đâu toàn bằng tuổi bạn đại học ý<br>
 ;> e chắc có tu nên gặp a =))<br>
 ;> ko gặp a là giờ e còn FA<br>
-;> e đi chơi a sẽ kiêm thợ chụp hình cho e vừa xã nungf cho e
+;> e đi chơi a sẽ kiêm thợ chụp hình cho e vừa xã nungf cho e<br>
+;> nhu cầu của e là 1 tuần 14 lần =))
