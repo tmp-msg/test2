@@ -3,4 +3,5 @@
 ;> e cúng tam tai chưa e, nay a định mua hộp tré nhỏ về ăn mà ngta nghỉ bán ròi<br>
 ;> e cúng tam tai chưa e<br>
 ;> a lu bu xí nảy giờ<br>
-;> a add zalo a đi e
+;> e add zalo a đi e<br>
+;> chắc a ko đi sn bạn đc e, hủy kèo e
