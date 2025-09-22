@@ -6,4 +6,5 @@
 ;> coi tin rác tin bịp mệt ng e<br>
 ;> giờ chỉ cần ăn cắp video xong edit chữ edit nền vô là ra 1 bài xàm lòn của mình<br>
 ;> video có chữ ròi thì edit chồng lên là xong, giọng thì xài tool<br>
-;> coi chỉ tay thì bên dưới là video còn bên là chỉ tay thì mình thích bịp hình gì mình edit chồng vô là xong
+;> coi chỉ tay thì bên dưới là video còn bên là chỉ tay thì mình thích bịp hình gì mình edit chồng vô là xong<br>
+;> khuya ròi ngủ đi e
