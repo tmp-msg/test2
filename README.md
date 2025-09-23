@@ -5,4 +5,5 @@
 ;> ở việt nam mà giàu mới sướng e<br>
 ;> mấy nay e ghệ a sao<br>
 ;> nơi xứ ng mà ở gì e, nào là phải biết tiếng 2 là phải có tiền<br>
-;> a lười học ngoại ngữ lắm tiếng anh nói chơi thì đc
+;> a lười học ngoại ngữ lắm tiếng anh nói chơi thì đc<br>
+;> ngủ ngon e
