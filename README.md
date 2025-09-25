@@ -4,4 +4,6 @@
 ;> sao mấy nay cứ thấy con nyc a ý e<br>
 ;> a ctay nó lâu r, thôi kệ nó e<br>
 ;> nửa ở chung a nha, e thích ăn chân gà hem<br>
-;> làm chân gà sốt thái dễ mà e, sơ chế chân gà + xã + lá chân + sốt thái (mua) + nước chấm (mua)
+;> làm chân gà sốt thái dễ mà e, sơ chế chân gà + xã + lá chân + sốt thái (mua) + nước chấm (mua)<br>
+;> có tiền thì a ăn vặt vòng vòng nhà thôi e<br>
+;>
