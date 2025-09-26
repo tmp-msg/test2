@@ -4,4 +4,6 @@
 ;> nhắn sớm ngủ sớm e<br>
 ;> ước đc ngủ chung vs e =))<br>
 ;> nghèo cũng bùn nửa e<br>
-;> hôm nào đi nhà nghỉ nắc e
+;> hôm nào đi nhà nghỉ nắc e<br>
+;> đi chùa ko linh là mốt a nghỉ chán hong đi chỗ đó nửa<br>
+;> làm vợ a là phải  biết nấu ăn nhe hem
