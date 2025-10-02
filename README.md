@@ -1,3 +1,1 @@
-;> a nhô e, đợi a xíu tí a nhắn cho nhe e, mai chắc nhắn cỡ 8-9h đi e<br>
-;> tối ngủ chung nhe e<br>
-;> mấy nay có đi đâu chơi hem e, up hình lên a coi e
+;> a ngủ quên xíu e
