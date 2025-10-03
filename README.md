@@ -4,4 +4,5 @@
 ;> iu a hem e<br>
 ;> e làm vợ a thì a rảnh a phụ e việc nhà<br>
 ;> nấu cơm, lau nhà, giặt đồ, phơi đồ thì a làm đc<br>
-;> tối ngủ chung cho mò dú cái coi e
+;> tối ngủ chung cho mò dú cái coi e<br>
+;> e dú bự ròi ko cần nâng ngực đâu e
