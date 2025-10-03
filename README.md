@@ -3,4 +3,5 @@
 ;> tối ngủ a mò dú cái =))<br>
 ;> iu a hem e<br>
 ;> e làm vợ a thì a rảnh a phụ e việc nhà<br>
-;> nấu cơm, lau nhà, giặt đồ, phơi đồ thì a làm đc
+;> nấu cơm, lau nhà, giặt đồ, phơi đồ thì a làm đc<br>
+;> tối ngủ chung cho mò dú cái coi e
