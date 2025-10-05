@@ -11,4 +11,6 @@
 ;> có bà ngoại a thì tư tưởng z thôi<br>
 ;> nói chung thì họ hàng a thì kiểu nổ bốp bốp con họ lên ròi chê bai con người khác kiểu z, đặc biệt là trong họ hàng<br>
 ;> e quen a thì e biết a thôi chứ e ko cần tiếp những người toxic như z đâu e<br>
-;> bên ngoại a thì ăn học ko cao chủ yếu làm công việc tay chân thôi
+;> bên ngoại a thì ăn học ko cao chủ yếu làm công việc tay chân thôi<br>
+;> học ít ăn to nói lớn<br>
+;> e ở vs a thì e ko cần tiếp cha mẹ a hay họ hàng a e nhé
