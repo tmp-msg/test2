@@ -13,4 +13,9 @@
 ;> e quen a thì e biết a thôi chứ e ko cần tiếp những người toxic như z đâu e<br>
 ;> bên ngoại a thì ăn học ko cao chủ yếu làm công việc tay chân thôi<br>
 ;> học ít ăn to nói lớn<br>
-;> e ở vs a thì e ko cần tiếp cha mẹ a hay họ hàng a e nhé
+;> e ở vs a thì e ko cần tiếp cha mẹ a hay họ hàng a e nhé<br>
+;> có con thì tự chăm tự thuê người chăm thôi e<br>
+;> a ko thích gia đình a dạy con<br>
+;> mở tiktok lên là thấy xàm lòn ròi e, hô tuổi thìn sắp giàu tiền tỉ =))<br>
+;> từ nay đến cuối năm vẫn mạc như cũ, a đéo tin 3 cái tin online AI đó đâu e<br>
+;> khuya r ngủ ngon nhe e
