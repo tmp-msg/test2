@@ -3,4 +3,5 @@
 ;> nửa già mình ở chung vs nhau e<br>
 ;> mai trung thu e có đi đâu chơi hem<br>
 ;> trung thu nay éo có quà nha e<br>
-;> có đi chơi vs nhau đc đâu mà quà e
+;> có đi chơi vs nhau đc đâu mà quà e<br>
+;> nào đi chơi vs nhau đi lễ a mua quà cho
