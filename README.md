@@ -4,4 +4,8 @@
 ;> mai trung thu e có đi đâu chơi hem<br>
 ;> trung thu nay éo có quà nha e<br>
 ;> có đi chơi vs nhau đc đâu mà quà e<br>
-;> nào đi chơi vs nhau đi lễ a mua quà cho
+;> nào đi chơi vs nhau đi lễ a mua quà cho<br>
+;> nhà a thì sống gần bên ngoại, bên ngoại thì trọng nam kinh nữ<br>
+;> còn nhà a thì hay bị những người họ hàng chị e vs mẹ a chê bai coi thường<br>
+;> ko phải gia đình nào ở dưới miền tây cũng cổ hủ hay trọng nam kinh nữ e nhé<br>
+;> có bà ngoại a thì tư tưởng z thôi
