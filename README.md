@@ -9,4 +9,6 @@
 ;> mấy đứa đeo a giờ nó chán nghỉ đeo ròi<br>
 ;> già gần 50 tuổi ròi nó nào giờ có ăn đc 1 nghìn nào của a =))<br>
 ;> cuộc sống nó tự lo, mắc nợ tự trả, con nó chồng con nó nuôi<br>
-;> tự dưng a đi học môn nó, nó đeo a tới giờ
+;> tự dưng a đi học môn nó, nó đeo a tới giờ<br>
+;> bà đó phải cặp a già sồn sồn hơn tuổi bả ròi cho bóp dú mò lòn mới moi đc tiền =))<br>
+;> chứ quen ghệ ăn tiền ngta kiểu gì cũng có môn đó à e, ai cũng z hết
