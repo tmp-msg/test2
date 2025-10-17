@@ -12,4 +12,5 @@
 ;> tự dưng a đi học môn nó, nó đeo a tới giờ<br>
 ;> bà đó phải cặp a già sồn sồn hơn tuổi bả ròi cho bóp dú mò lòn mới moi đc tiền =))<br>
 ;> chứ quen ghệ ăn tiền ngta kiểu gì cũng có môn đó à e, ai cũng z hết<br>
-;> quen ghệ là phải đi ăn đi chơi cho bóp nắn mới moi đc tiền ăn
+;> quen ghệ là phải đi ăn đi chơi cho bóp nắn mới moi đc tiền ăn<br>
+;> chứ ko phải cặp bồ đực cái là chỉ nắm tay nhìn nhau là no
