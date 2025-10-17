@@ -4,4 +4,6 @@
 ;> nên ít có chuyện xàm lòn gì nhắn e<br>
 ;> nó xàm lòn vài năm nữa ròi cũng chán <br>
 ;> a vs nó đâu thân thiết gì<br>
-;> có tiền thì a mua sắm cho bản thân a, cho mẹ tí tiền, bao e đi chơi
+;> có tiền thì a mua sắm cho bản thân a, cho mẹ tí tiền, bao e đi chơi<br>
+;> con giò heo nó gần 50 ròi, cuộc sống nó tự lo, ai giúp gì cho nó đâu<br>
+;> mấy đứa đeo a giờ nó chán nghỉ đeo ròi 
