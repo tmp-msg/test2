@@ -6,4 +6,5 @@
 ;> a tính đến chuyện 2 mình ở chung a cũng phải có tí tiền chứ e<br>
 ;> làm 20 củ nói làm 10 củ thôi đỡ bị gia đình moi tiền e =))<br>
 ;> để dành lo gia đình riêng của mình chứ e<br>
-;> 
+;> bò nhúng giấm quán đó thì a chưa ăn bh<br>
+;> có gì coi hem e gợi ý a coi
