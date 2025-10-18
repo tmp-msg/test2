@@ -7,4 +7,5 @@
 ;> làm 20 củ nói làm 10 củ thôi đỡ bị gia đình moi tiền e =))<br>
 ;> để dành lo gia đình riêng của mình chứ e<br>
 ;> bò nhúng giấm quán đó thì a chưa ăn bh<br>
-;> có gì coi hem e gợi ý a coi
+;> có gì coi hem e gợi ý a coi<br>
+;> nay chắc ngủ sớm quá, mắt híp ròi e
