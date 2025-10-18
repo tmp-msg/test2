@@ -5,4 +5,5 @@
 ;> nhà a thì lâu lâu a mới cho tiền thôi, chứ cuộc sống mình tự lo phải có tiền chứ e<br>
 ;> a tính đến chuyện 2 mình ở chung a cũng phải có tí tiền chứ e<br>
 ;> làm 20 củ nói làm 10 củ thôi đỡ bị gia đình moi tiền e =))<br>
-;> để dành lo gia đình riêng của mình chứ e
+;> để dành lo gia đình riêng của mình chứ e<br>
+;> 
