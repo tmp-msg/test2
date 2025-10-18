@@ -8,4 +8,5 @@
 ;> để dành lo gia đình riêng của mình chứ e<br>
 ;> bò nhúng giấm quán đó thì a chưa ăn bh<br>
 ;> có gì coi hem e gợi ý a coi<br>
-;> nay chắc ngủ sớm quá, mắt híp ròi e
+;> nay chắc ngủ sớm quá, mắt híp ròi e<br>
+;> ngủ ngon e, a ngủ à
