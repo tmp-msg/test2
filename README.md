@@ -4,4 +4,5 @@
 ;> đời a thích ăn ngon, nhiều tiền để hưởng thụ<br>
 ;> game thì rảnh chơi thôi chứ việc làm hay đời thực thì nó vẫn quan trọng e<br>
 ;> xưa a thích coi game kinh dị vs sinh tồn lắm mà coi quài thì nó chán ý e, giờ coi toàn tua nhanh<br>
-;> e học làm bánh xèo đi, nửa làm a ăn
+;> e học làm bánh xèo đi, nửa làm a ăn<br>
+;> thôi khuya ròi ngủ ngon nhe e
