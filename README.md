@@ -6,4 +6,6 @@ https://www.youtube.com/watch?v=Xl2YRUMUIgs <br>
 ;> nhà cái lập trình sẵn ròi ko ăn đc, a học code a biết<br>
 ;> cơm nước gì chưa ghệ iu<br>
 ;> đâu chụp con mèo màu xám của e a coi coi<br>
-;> coi con game a gửi chưa e, hạn chế coi phim heo đi nhe e
+;> coi con game a gửi chưa e, hạn chế coi phim heo đi nhe e<br>
+;> <img width="1659" height="1167" alt="image" src="https://github.com/user-attachments/assets/649b6c50-33b4-4f5d-be9f-b026f8b87ff7" /><br>
+;> rảnh code chơi e
