@@ -3,4 +3,5 @@
 https://www.youtube.com/watch?v=Xl2YRUMUIgs <br>
 ;> coi con game này cũng hay e, thg chồng bị bạn dụ dỗ cờ bạc tan nát gia đình<br>
 ;> nào giờ a mới biết cờ bạc mạng là như z =))<br>
-;> nhà cái lập trình sẵn ròi ko ăn đc, a học code a biết
+;> nhà cái lập trình sẵn ròi ko ăn đc, a học code a biết<br>
+;> cơm nước gì chưa ghệ iu
