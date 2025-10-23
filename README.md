@@ -1,2 +1,3 @@
 ;> a nhô ghệ iu, nay a cảm xíu<br>
-;> giờ hem có gì coi hết e, toàn bịp vs rác
+;> giờ hem có gì coi hết e, toàn bịp vs rác<br>
+;> có tiền a mua con mac xài cho nhẹ 40 củ là đẹp
